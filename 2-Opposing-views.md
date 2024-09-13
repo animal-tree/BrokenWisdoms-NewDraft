@@ -591,6 +591,7 @@ Got to message someone named Tayler a week after my Taylor-CAM paper who reached
 >
 > The [next one was in a geriatric unit (a facility for the elderly)](#geriatric-unit-hospitalization), so consider me reprimanded.
 
+<!--
 On the note of synchronicities:
 
 - Waxed wise with a close friend ([Jeremiah](#hospitalization)) who I met on a trip to Israel many years back — someone who rather serendipitously was seated next to me on that plane — about reinforcement learning on Facebook, reconnected, and at his birthday party ran into someone who my religious friend (different guy incidentally, Josiah) introduced me to years ago, who I then kept running into the next weeks at the beach literally by just remarkable luck, and each usually-accidental date we had was like a reinforcement learning episode, of me trying to listen to my subconscious and instinct, and getting rewarded or punished and ultimately the world’s lowest ever score aside from one much needed hug! We were both RL agents in that one (no not ["reinforcement learning agents"](https://github.com/slerman12/UnifiedMLold2/tree/master/Agents), "real life agents")! The fun never ends. 
@@ -600,6 +601,7 @@ On the note of synchronicities:
 Well, I suppose there was the thanksgiving with Sarah (see [in next chapter](#intimacy-healing)), which I also appreciated and appreciate and give thanks to.
 
 That’s all the very brief glimpses of [happiness](https://github.com/user-attachments/assets/c857908b-f4db-438d-b597-a5beb25428d3) I [got](https://github.com/user-attachments/assets/d90d847e-0364-4c33-94ea-146045da8f73) under Chenliang (or mostly [Henry](https://github.com/user-attachments/assets/e2e55660-57be-415b-9371-7918e93add5a) for that matter). Resume [tragedy](https://github.com/user-attachments/assets/236cf39c-c0a4-45e2-b932-18f62195edd2). 
+-->
 
 ### More seriously
 
@@ -662,8 +664,6 @@ My grandma had long grey hair, down to almost her waist or hips. She curled it u
 She told me when we were sitting in the backseat of the car, perhaps when we were going with my mom and grandpa to the pool at JCC, that I had her fingernails, perhaps unusual. I also take her eyes, and my mom's eyes. I got a girlfriend temporarily in 2016, the semester that my grandma died, who remarked on my cuticles. I didn't know what those were, but apparently I didn't cut them. Also an unusual remark, at an important juncture involving my grandma, that I remember. 
 
 Anyway, in addition to losing all of my hair — head, eyebrows, and eyelashes — due to the Dupilumab cessation, I also lost my fingernails in functionality in 2018, also unambiguously due to the Dupilumab cessation. They regrew, healthily functional enough, after being purple, and bendy like putty, for a really long time, maybe into 2019. 
-
-Without hair, without eyebrows and eyelashes, with even my fingernails purple and bending out of my nails, and social isolation and heavy workloads.
 
 #### How my grandma got dementia
 
