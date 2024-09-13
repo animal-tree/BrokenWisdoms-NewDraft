@@ -107,6 +107,8 @@ My legs were immobile when I crawled out of the brook.
 > ### [Looney tailored scream](https://github.com/user-attachments/assets/b7233aed-b39a-42ef-9d98-b0a2ebce7d19)
 > 
 > I was facing a nearly full moon that was visible beyond the direction of the brook, above the rest of the woods. To the left, there was an area that I thought perhaps belonged to a neighborhood. I screamed for help. My voice sounded insincere and casually unafraid, like a different person's, [out of tune](https://youtu.be/Lae1WM6bMJY?si=7-isCvjIwJX9zLyK) from what I was thinking and feeling, like somebody's who was just born in me, who didn't trust my attempted plea, who trusted even the hypothetical people in the neighborhood nearby more than the innocence/lack-of-knowledge/simplicity of the bearer, spelling me a liar.  <!-- of her voice. Only in retrospect can I perhaps attribute a character/gender/name to that voice. At the time,  It just sounded idiosyncratic to how afraid and serious I thought I was feeling. -->
+>
+> Note: When the ambulance arrived, this insincerity-tone disappeared and my tone and consciousness resumed in tune.
 
 An ambulance found me, wet with brook water, nearly hypothermic. The only answer I gave as to what happened, was "for pleasure," here and thereafter, still under the delusional belief that my mom's life was in danger if I didn't adhere to that secrecy.
 
