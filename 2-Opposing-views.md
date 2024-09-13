@@ -390,7 +390,7 @@ Symptoms from taking the benzos as prescribed included:
 
 Deeper summary of my trauma [here](https://github.com/animal-tree/BrokenWisdoms-NewDraft/blob/main/2-Opposing-views.md#my-trauma) (you may have to scroll up).
 
-The steak diet, which I began after all of these symptoms and withdrawing from benzos, helped my recovery, as well as, surprisingly, catalyzed my first hair regrowth.
+The steak diet, which I began after all of these symptoms and withdrawing from benzos, helped my recovery, as well as, surprisingly, catalyzed my first hair regrowth (temporarily).
 
 The experience of losing my hair has cost me relationships and worsened my social anxiety, and the benzo-brain damage and torture leaves me with PTSD.
 
