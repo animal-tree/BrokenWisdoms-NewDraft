@@ -103,13 +103,6 @@ It was at night, near 2 AM, 3 AM, or 4 AM when that terrible peace turned to hor
 
 My legs were immobile when I crawled out of the brook.
 
-> [!WARNING]
-> ### [Looney tailored scream](https://github.com/user-attachments/assets/b7233aed-b39a-42ef-9d98-b0a2ebce7d19)
-> 
-> I was facing a nearly full moon that was visible beyond the direction of the brook, above the rest of the woods. To the left, there was an area that I thought perhaps belonged to a neighborhood. I screamed for help. My voice sounded insincere and casually unafraid, like a different person's, [out of tune](https://youtu.be/Lae1WM6bMJY?si=7-isCvjIwJX9zLyK) from what I was thinking and feeling, like somebody's who was just born in me, who didn't trust my attempted plea, who trusted even the hypothetical people in the neighborhood nearby more than the innocence/lack-of-knowledge/simplicity of the bearer, spelling me a liar.  <!-- of her voice. Only in retrospect can I perhaps attribute a character/gender/name to that voice. At the time,  It just sounded idiosyncratic to how afraid and serious I thought I was feeling. -->
->
-> Note: When the ambulance arrived, this insincerity-tone disappeared and my tone and consciousness resumed in tune.
-
 An ambulance found me, wet with brook water, nearly hypothermic. The only answer I gave as to what happened, was "for pleasure," here and thereafter, still under the delusional belief that my mom's life was in danger if I didn't adhere to that secrecy.
 
 > [!NOTE]
@@ -861,6 +854,13 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 > The benzo debilitation, combined with the hair loss, will socially and medically alienate me worse than had I myself assumed his handicaps, hygiene, and alcoholism, and committed his crimes. In other words, the resurrection vision came true, in my status and health in society. More than that, my recovery from those injustices, in the subsequent year, only began around the time when [he died in a psychosis revolving around, as my mom learned, fear of his mom dying](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md), also with no previous history of mania or psychosis to my knowledge, a 50-something year old man.
 
 My legs were immobile when I crawled out of the brook, me then screaming for the ambulance to a nearly full moon in the woods. My pants had fallen partially down my legs when I had crawled out of the brook and "Tao"/"God" told me not to adjust them on faith.
+
+> [!WARNING]
+> ### [Looney tailored scream](https://github.com/user-attachments/assets/b7233aed-b39a-42ef-9d98-b0a2ebce7d19)
+> 
+> I was facing a nearly full moon that was visible beyond the direction of the brook, above the rest of the woods. To the left, there was an area that I thought perhaps belonged to a neighborhood. I screamed for help. My voice sounded insincere and casually unafraid, like a different person's, [out of tune](https://youtu.be/Lae1WM6bMJY?si=7-isCvjIwJX9zLyK) from what I was thinking and feeling, like somebody's who was just born in me, who didn't trust my attempted plea, who trusted even the hypothetical people in the neighborhood nearby more than the innocence/lack-of-knowledge/simplicity of the bearer, spelling me a liar.  <!-- of her voice. Only in retrospect can I perhaps attribute a character/gender/name to that voice. At the time,  It just sounded idiosyncratic to how afraid and serious I thought I was feeling. -->
+>
+> Note: When the ambulance arrived, this insincerity-tone disappeared and my tone and consciousness resumed in tune.
 
 The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the brook water and possibly hypothermic with pants partially down though they pulled them up quickly as they carried me up to the ambulance, for transport to the hospital; "Tao"/"God" told me to tell the ambulance responders that I was in there "for pleasure" on a faith regarding my pants that had partially fallen over my boxers and the sex-offender resurrection vision, which I did; and that was all I told the ambulance responders or the first nurses at RGH about what happened — "for pleasure."
 
