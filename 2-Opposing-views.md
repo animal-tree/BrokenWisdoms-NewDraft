@@ -101,8 +101,6 @@ Still daylight, the meaning of ["Life is suffering,"](https://www.psychologytoda
 
 It was at night, near 2 AM, 3 AM, or 4 AM when that terrible peace turned to horror.
 
-I thought my legs were immobile when I crawled out of the brook.
-
 An ambulance found me, wet with brook water, nearly hypothermic. The only answer I gave as to what happened, was "for pleasure," here and thereafter, still under the delusional belief that my mom's life was in danger if I didn't adhere to that secrecy.
 
 > [!NOTE]
