@@ -874,7 +874,7 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 
 #### Precognition
 
-Legs extended in front of me, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
+Legs extended in front of me, pants dragged below my boxers, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
 - was a paraplegic,
 - used to live in a different apartment building,
 - used to nod/wave at me in our apartment complex when I was a kid walking back from the bus,
