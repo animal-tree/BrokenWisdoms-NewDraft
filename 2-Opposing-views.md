@@ -383,6 +383,8 @@ Deeper summary of my trauma [here](https://github.com/animal-tree/BrokenWisdoms-
 
 The steak diet, which I began after all of these symptoms and withdrawing from benzos, helped my recovery.
 
+The trauma I went through during my psychosis (which the psychiatrists didn't even know about) doesn't compare to the year of benzo neurochemical torture.
+
 The experience of losing my hair has cost me relationships and worsened my social anxiety, and the benzo-brain damage and torture leaves me with PTSD.
 
 <p align="center">
