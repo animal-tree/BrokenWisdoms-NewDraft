@@ -831,8 +831,6 @@ Those environments are where we learn that some people are inferior to others, n
 
 #### Circumcision
 
-> Chapter is in progress
-
 > [!WARNING]
 > On Christmas, 2018, the crisis I went through included many more details than the ones I specified at the start of this book.
 
