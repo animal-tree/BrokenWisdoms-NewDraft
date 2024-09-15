@@ -992,7 +992,7 @@ After that, my Kundalini sensations seemed jammed, like I was metaphorically an 
 >
 > "Tao"/"God" commanded me to put a stick in my butt while threatening to kill my mom, so I did that as well in the woods, uncomfortably, partially, in the threat of my mom, barely qualifying the obedience ("good enough"), since I can’t even tolerate my own finger.
 
-Incidentally, this was all on Christmas, Christmas Eve to Christmas morning/night, but I had nothing to do with that.
+Incidentally, this was all on Christmas, Christmas Eve to Christmas morning/night, but I had nothing to do with that, barely knew it was Christmas Eve/Christmas.
 <!-- , and though this doesn't help my case to add, I barely knew it was Christmas since my family is Jewish. -->
 
 Nobody, not even my mom, was aware of the "circumcision" and "stick" details until at least 2022.
