@@ -990,7 +990,7 @@ After that, my Kundalini sensations seemed jammed, like I was metaphorically an 
 >
 > I believed the spider from earlier in the day was crawling up my intestines to retrieve the energy, to help bring it down.
 >
-> "Tao"/"God" commanded me to put a stick in my butt while threatening to kill my mom, so I tried to do that as well in the woods, uncomfortably, partially, in the threat of my mom, barely qualifying the obedience ("good enough"), since I can’t even tolerate my own finger.
+> "Tao"/"God" commanded me to put a stick in my butt while threatening to kill my mom, so I did that as well in the woods, uncomfortably, partially, in the threat of my mom, barely qualifying the obedience ("good enough"), since I can’t even tolerate my own finger.
 
 Incidentally, this was all on Christmas, Christmas Eve to Christmas morning/night, but I had nothing to do with that, and though this doesn't help my case to add, I barely knew it was Christmas since my family is Jewish.
 
