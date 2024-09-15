@@ -880,8 +880,7 @@ Legs extended in front of me, pants dragged below my boxers, I had the sudden se
 - used to nod/wave at me in our apartment complex when I was a kid walking back from the bus,
 - got registered as a sex-offender because of internet child porn, 
 - depended on his 80-something year-old mom to take care of him to function,
-- was an alcoholic,
-- chain-smoked,
+- was an alcoholic and chain-smoker,
 - constantly made our whole apartment hallway reek of pee and cigarettes, 
 - smelled like pee and cigarettes, and, interestingly,
 
