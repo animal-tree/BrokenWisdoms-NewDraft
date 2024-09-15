@@ -1072,7 +1072,7 @@ I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-gra
 > - was at my grandpa's funeral, respectfully, perhaps at a distance
 > - depended on his 80-something year-old mom to take care of him to function,
 > - was an alcoholic and chain-smoker,
-> - later moved into a different apartment unit diagonally across from ours and next to the one that my grandma and grandpa lived in,
+> - later moved into a different apartment unit diagonally across from ours and next to the one that my grandma and grandpa had lived in,
 > - constantly made our whole apartment hallway reek of pee and cigarettes,
 > - smelled like pee and cigarettes, and, interestingly,
 >
