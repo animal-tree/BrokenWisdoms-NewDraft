@@ -955,7 +955,7 @@ The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the broo
 
 #### Hospital
 
-My legs weren't immobile anymore. That was perhaps projected earlier. I felt physically healthy, despite the mental state. They did some measurements and found my CK levels were high and, according to my sister, said that I almost had frostbite.
+My legs weren't immobile anymore. That was perhaps projected earlier. I felt physically healthy, despite the mental state. They did some measurements and found my WBC and CK levels were high and, according to my sister, said that I almost had frostbite.
 
 A nurse, and I think no one else, saw and remarked on the slice/gash on my foreskin. There was a lot of confusion about the next situation ("swallowed my tongue"), so the information about my foreskin didn’t pass from nurse 1 to people N, or else more questions would’ve been asked. That nurse was just there to help thaw my legs to prevent hypothermia and frostbite. She wasn't a psychiatric care unit nurse. The foreskin eventually healed, as I found out sometime after this hospitalization. My legs were thawed in some machine and my mom arrived. The heart rate pacing machine beeped really fast and showed large numbers that seemed to sporadically change by the yogic energies in my body I was tuned into acutely again.
 
