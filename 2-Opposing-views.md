@@ -839,13 +839,16 @@ Was there a high probability that you would die from Covid? Most likely, no. May
 
 On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book. Let's recount them now!
 
-In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself, me fearing the chance of the threat's being true, proceeding to circumcise myself.
+In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, proceeding to circumcise myself.
 
-I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by; I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor; I cleaned up the blood with paper towels. "Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial." 
+I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by; I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor; I cleaned up the blood with paper towels. 
 
 Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
 
 So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" told me I had to stay there for a week; "Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
+
+> [!WARNING]
+> As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
 
 I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom —
 
@@ -920,6 +923,9 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 > Yes, I know much of this is unbelievable. Here are the parts that can (not necessarily will) be verified: my preexisting social anxiety and unlikelihood to make all of this up, house on May St., lack of prior mania/psychosis history, Christmas, 2018 brook-jumping "mania," ambulance driver, that nurse who saw my foreskin gash, the police officers I shook hands with, hospitalization "catatonia," the conversation I overheard when the people wheeling me thought I was unconscious, my sister's touch and conversation, Sarah,  me telling my mom about the Volyoda delusion/association I had in the woods before his death, Volyoda's sex-offender registration and death, my Taylor-CAM paper archival date, the digital private interactions with Tayler in summer, 2020, my full-head hair regrowth, and all of the details of my next hospitalization in Fall, 2020.
 >
 > Also, [here is a more believable summary of this psychosis from an earlier version/draft/"commit"](https://github.com/animal-tree/BrokenWisdoms-TheReturnofNort/blob/57fde86227cbc35a4d7e8aa3e02f199038f6663c/2-Opposing-views.md#psychosis-and-rochester-general-hospital-rgh), and here is a separate summary of these [synchroncities](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md).
+
+> [!WARNING]
+> As this was happening, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
 
 #### Future hair losses
 
