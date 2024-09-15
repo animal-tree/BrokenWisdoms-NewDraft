@@ -1061,7 +1061,7 @@ Despite receiving the content that I got, I was practicing strict asceticisms fo
 
 She was kidnapped and raped. Volyoda was a kid-porn sex-offender. 
 
-I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-grandpa-died). Instead, I got mistaken by societal placement forces as Volyoda, who most-certainly was not my grandpa, but memorably, attended my grandpa's funeral, from more of a distance.
+I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-grandpa-died). Instead, I got mistaken by societal placement forces as Volyoda, who most-certainly is not my grandpa.
 
 > [!WARNING]
 > Legs extended in front of me, pants dragged below my boxers, I had the sudden sense, in a vivid vision that was like a black-and-white world, that I was going to resurrect for the next [some number of years] as my wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
@@ -1069,7 +1069,7 @@ I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-gra
 > - got registered as a sex-offender because of internet child porn, 
 > - used to live in a different apartment building,
 > - used to nod/wave at me in our apartment complex where he sat outside to smoke when I was a kid walking with the other kids back from the bus,
-> - was at my grandpa's funeral,
+> - was at my grandpa's funeral, respectfully, perhaps at a distance
 > - depended on his 80-something year-old mom to take care of him to function,
 > - was an alcoholic and chain-smoker,
 > - later moved into a different apartment unit diagonally across from ours and next to the one that my grandma and grandpa lived in,
