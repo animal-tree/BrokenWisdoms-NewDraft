@@ -877,7 +877,7 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 Legs extended in front of me, pants dragged below my boxers, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
 - was a paraplegic,
 - used to live in a different apartment building,
-- used to nod/wave at me in our apartment complex where he sat outside to smoke when I was a kid walking back from the bus,
+- used to nod/wave at me in our apartment complex where he sat outside to smoke when I was a kid walking with the other kids back from the bus,
 - got registered as a sex-offender because of internet child porn, 
 - depended on his 80-something year-old mom to take care of him to function,
 - was an alcoholic and chain-smoker,
