@@ -839,7 +839,7 @@ Was there a high probability that you would die from Covid? Most likely, no. May
 
 On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book. Let's recount them now!
 
-In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, proceeding to circumcise myself.
+In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded somewhat *ad lib* based on the glimpse of information I peered in that second I researched how to do it.
 
 I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by; I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor; I cleaned up the blood with paper towels. 
 
