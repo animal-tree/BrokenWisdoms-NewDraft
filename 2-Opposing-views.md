@@ -966,7 +966,7 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 > [!WARNING]
 > As this was happening, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
 
-Not much more than one week after admission, RGH discharged me with the diagnoses of "bipolar mania" and "catatonia."
+RGH discharged me not much more than one week after admission, with diagnoses "bipolar mania," "catatonia."
 
 #### Future hair losses
 
