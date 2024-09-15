@@ -967,7 +967,7 @@ I was still afraid my mom was going to die. We were moved to a different room an
 
 I went into a conscious yogic surrender of all muscle due to a command from those yogic grace guidances to do so, even as the doctors pushed and wheeled my limp body forward to the MRI machine, thinking I was unconscious, as I was following those yogic grace guidances. They joked about me being "Jesus" bullying/sarcastically while they wheeled my body forward to the MRI machine. I think either the intense silence with them earlier or the shaking hands with the police officers even earlier (not sure they were there to see that) is what might've triggered their bullying.
 
-After that, my Kundalini sensations seemed jammed, like I was metaphorically an airbender trapped in ice. 1.5 years later, the first thing Tayler would message me, in a comment of an ironic Facebook group that my college theater director recommended, was about cosplaying together as Katara and Aang. Katara was a water bender who, in that canon, brought Aang out of ice.
+After that, my Kundalini sensations seemed jammed, like I was metaphorically an airbender trapped in ice. 1.5 years later, the first thing Tayler would message me, in a comment of an ironic Facebook group that my college theater director recommended, was about cosplaying together as Katara and Aang. Katara was a waterbender who, in that canon, brought Aang out of ice.
 
 > [!WARNING]
 > ### Resisting Kundalini rising
