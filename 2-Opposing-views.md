@@ -834,7 +834,7 @@ Those environments are where we learn that some people are inferior to others, n
 > Chapter is in progress
 
 > [!WARNING]
-> On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book.
+> On Christmas, 2018, the crisis I went through included many more details than the ones I specified at the start of this book.
 
 I had good evidence that what was happening to me in meditation and yogic states wasn't delusion. On top of that, I had a rational understanding of how a possible physics-based universe-intelligence like Tao could be involved in those senses. I'll refer to those yogic "grace" guidances as "Tao"/"God."  The I Ching's answers, among other synchronicities, made the plausibility even higher, and given a sufficiently unwanted threat from those forces, the probability would be high enough to terrify me.
 
