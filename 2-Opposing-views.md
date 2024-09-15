@@ -840,22 +840,22 @@ I had good evidence that what was happening to me in meditation and yogic states
 
 Was there a high probability that you would die from Covid? Most likely, no. Maybe 2%, depending who you are. And yet, the risk was high enough for an entire global lockdown. If your mom's life was at threat, would a 2% chance of that threat being realized be enough to get you to... social distance? What about, to wear a mask? How far would you go with a 2% chance of your mom's life being at threat?
 
-<!-- In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded based on the glimpse of information I peered in that second I researched how to do it. -->
+<!-- In the dark early morning before I left my apartment, Tao/God told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded based on the glimpse of information I peered in that second I researched how to do it. -->
 
 About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychotic episode that was diagnosed as a "manic episode" that involved: 
 
-- "Tao"/"God" telling me it/He was going to kill my mom if I didn’t circumcise myself;
+- Tao/God telling me it/He was going to kill my mom if I didn’t circumcise myself;
 - circumcising myself;
   - I got a clamp iron, and — how to describe the other tool I used? —
   - "saw knife" might not be what it’s called,
   - a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by;
-  - I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor;
+  - I think Tao/God figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor;
   - I cleaned up the blood with paper towels;
-- then "Tao"/"God" telling me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
+- then Tao/God telling me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
 - staying in the woods in the freezing snow all day and night;
-- "Tao"/"God" telling me I had to stay there for a week.
+- Tao/God telling me I had to stay there for a week.
 
-"Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
+Tao/God contradictorily told me that my mom was dead, or dying, or might die.
 
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
@@ -874,7 +874,7 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 > [!NOTE]
 > The benzo debilitation, combined with the hair loss, will socially and medically alienate me worse than had I myself assumed his handicaps, hygiene, and alcoholism, and committed his crimes. In other words, the resurrection vision came true, in my status and health in society. More than that, my recovery from those injustices, in the subsequent year, only began around the time when [he died in a psychosis revolving around, fear of his mom dying](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md), also with no previous history of mania or psychosis to my knowledge, a 50-something year old man.
 
-My legs were immobile when I crawled out of the brook, me then screaming for the ambulance to a nearly full moon in the woods. My pants had fallen partially down my legs when I had crawled out of the brook and "Tao"/"God" told me not to adjust them on faith.
+My legs were immobile when I crawled out of the brook, me then screaming for the ambulance to a nearly full moon in the woods. My pants had fallen partially down my legs when I had crawled out of the brook and Tao/God told me not to adjust them on faith.
 
 > [!WARNING]
 > ### [Looney tailored scream](https://github.com/user-attachments/assets/b7233aed-b39a-42ef-9d98-b0a2ebce7d19)
@@ -883,7 +883,7 @@ My legs were immobile when I crawled out of the brook, me then screaming for the
 >
 > Note: When the ambulance arrived, this insincerity-tone disappeared and my tone and consciousness resumed in tune.
 
-The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the brook water and possibly hypothermic with pants partially down though they pulled them up quickly as they carried me up to the ambulance, for transport to the hospital; "Tao"/"God" told me to tell the ambulance responders that I was in there "for pleasure" on a faith regarding my pants that had partially fallen over my boxers and the sex-offender resurrection vision, which I did; and that was all I told the ambulance responders or the first nurses at RGH about what happened — "for pleasure."
+The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the brook water and possibly hypothermic with pants partially down though they pulled them up quickly as they carried me up to the ambulance, for transport to the hospital; Tao/God told me to tell the ambulance responders that I was in there "for pleasure" on a faith regarding my pants that had partially fallen over my boxers and the sex-offender resurrection vision, which I did; and that was all I told the ambulance responders or the first nurses at RGH about what happened — "for pleasure."
 
 A nurse, and I think no one else, saw and remarked on the slice/gash on my foreskin. There was a lot of confusion about the next situation ("swallowed my tongue"), so the information about my foreskin didn’t pass from nurse 1 to people N, or else more questions would’ve been asked. That nurse was just there to help thaw my legs to prevent hypothermia and frostbite. She wasn't a psychiatric care unit nurse. The foreskin eventually healed, as I found out sometime after this hospitalization. My legs were thawed in some machine and my mom arrived. The heart rate pacing machine beeped really fast and showed large numbers that seemed to sporadically change by the yogic energies in my body I was tuned into acutely again.
 
@@ -910,13 +910,13 @@ After that, my Kundalini sensations seemed jammed, like I was metaphorically an 
 >
 > Then, back again to the dead of night:
 >
-> "Tao"/"God" telling me to choose — "up" or "down" — with a throat movement situation that I sensed — where "up" meant "power" and "siding with men" and "down" meant siding with my mom, and I chose down and kept choosing down. More specifically, up meant to "Heaven, Tao/God, creation, masculinity, power," and down meant to "Earth, nature, receptivity, femininity, my mom." This was probably nonsense. I kept trying to bring it down.
+> Tao/God telling me to choose — "up" or "down" — with a throat movement situation that I sensed — where "up" meant "power" and "siding with men" and "down" meant siding with my mom, and I chose down and kept choosing down. More specifically, up meant to "Heaven, Tao/God, creation, masculinity, power," and down meant to "Earth, nature, receptivity, femininity, my mom." This was probably nonsense. I kept trying to bring it down.
 > 
 > I kept choosing "down," so much so that I tried to keep my chakras open by force to evacuate/abort(?) every last energy left, by every means I could, that was in line with what the threats against my mom, in my fear and intuition, were commanding me. But these commands were a delusion. What wasn't a delusion was my ability, since starting meditating, to bend those energies, acutely, from the alignment of my body with the weather so that it didn't shiver, to the Kundalini that moved in three directions, three axes (not just up and down, but between heart, back of neck, and forehead) across my body, with the control that one has over one's tongue and with the lightness of air, adaptive, not "up or down," but a living organ; and that was not the sense in this dead of night, where I was trying to brute force something out of fear and, most plausibly, delusion/misconstruction of a phenomena that was actually happening.
 >
 > I believed the spider from earlier in the day was crawling up my intestines to retrieve the energy, to help bring it down.
 >
-> "Tao"/"God" commanded me to put a stick in my butt while threatening to kill my mom, so I tried to do that as well in the woods, uncomfortably, partially, barely qualifying the obedience, since I can’t even tolerate my own finger.
+> Tao/God commanded me to put a stick in my butt while threatening to kill my mom, so I tried to do that as well in the woods, uncomfortably, partially, barely qualifying the obedience, since I can’t even tolerate my own finger.
 
 Incidentally, this was all on Christmas, Christmas Eve to Christmas morning/night, but I had nothing to do with that, and though this doesn't help my case to add, I barely knew it was Christmas since my family is Jewish.
 
