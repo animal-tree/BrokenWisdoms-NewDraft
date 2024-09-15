@@ -829,7 +829,7 @@ Those environments are where we learn that some people are inferior to others, n
 >
 > I met Mobi in the October, 2020 "Bar Mitzvah hospitalization." A couple years later, I learned that Sarah had met Mobi in one of their hospitalizations, too, that he'd even braided Sarah's hair. Mobi was a recurrent inpatient care unit psychiatric recipient. He was 16, clearly intelligent, had a "sober" intelligence and humor, was respectful, kind, and chill. They'd been giving him benzos for 2 years at that point, on and perhaps-sporadically-off, from the age of about 14, and he was in there mainly, or perhaps only, for drug problems and addiction. Acclimating to benzos, one's brain becomes deprived of GABA and will crave something, usually drugs, to take the literal neural edge off, to silence those disproportionate Glutamates and other action potentials whose balancing complement, GABA, is downregulated, throughout the brain. Benzos are a hard drug, and are as addictive as any hard drug. He was a 16-year-old drug addict, and they kept institutionalizing him for his drug issues and prescribing daily benzos. 
 
-#### Christmas, 2018 trauma, Volyoda, and hair regrowth
+#### Circumcision
 
 > Chapter is in progress
 
@@ -860,6 +860,8 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
 
+#### Brook "baptism"
+
 I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom —
 
 > [!NOTE]
@@ -885,11 +887,15 @@ My legs were immobile when I crawled out of the brook, me then screaming for the
 
 The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the brook water and possibly hypothermic with pants partially down though they pulled them up quickly as they carried me up to the ambulance, for transport to the hospital; "Tao"/"God" told me to tell the ambulance responders that I was in there "for pleasure" on a faith regarding my pants that had partially fallen over my boxers and the sex-offender resurrection vision, which I did; and that was all I told the ambulance responders or the first nurses at RGH about what happened — "for pleasure."
 
+#### Hospital intimacy
+
 A nurse, and I think no one else, saw and remarked on the slice/gash on my foreskin. There was a lot of confusion about the next situation ("swallowed my tongue"), so the information about my foreskin didn’t pass from nurse 1 to people N, or else more questions would’ve been asked. That nurse was just there to help thaw my legs to prevent hypothermia and frostbite. She wasn't a psychiatric care unit nurse. The foreskin eventually healed, as I found out sometime after this hospitalization. My legs were thawed in some machine and my mom arrived. The heart rate pacing machine beeped really fast and showed large numbers that seemed to sporadically change by the yogic energies in my body I was tuned into acutely again.
 
 I kind of intimately, silently, slowly-and-aware-of-their-power had shaken hands with the police officers. Police officers came in for questioning. I didn't say a word, looked them intensely in the eyes, and slowly made it clear that I was aware of them. I shook hands with each one, slowly and with a slow intimate intensity.
 
 I was still afraid my mom was going to die. We were moved to a different room and I danced with my mom in the hall out of an effort to reduce her fear, or my fear, or bring humor to the situation, while we were waiting, still mostly silently. I'd been taking lessons with her those months, poorly, tango lessons that I started with professional teachers in a class she brought me to, where a friend my age taught, while in the House on May St. I never got good at it, unlike my mom, who'd been dancing since childhood and was originally taught by my grandma.
+
+#### Swallowing my tongue
 
 I went into a conscious yogic surrender of all muscle due to a command from those yogic grace guidances to do so, even as the doctors pushed and wheeled my limp body forward to the MRI machine, thinking I was unconscious, because I was perfectly surrendering in those yogic grace guidances. They joked about me being "Jesus" bullying/sarcastically while they wheeled my body forward to the MRI machine. I think either the intense silence with them earlier or the shaking hands with the police officers is what might've triggered their bullying.
 
