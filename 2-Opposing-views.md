@@ -477,6 +477,14 @@ I hope Charles and his colleagues may find the above diagram (["5 Computational 
 
 But before we come to the conclusion that Charles is caught "red-handed," he was very supportive as my advisor; and he was left-handed, I recall, like my grandpa.
 
+<p align="center">
+<picture>
+  <source width="20%" media="(prefers-color-scheme: dark)" srcset="https://github.com/slerman12/Detective-Sam/assets/9126603/058ab251-3664-4358-9014-ede3dfb3674c">
+  <img width="20%" alt="Text changing depending on mode. Light: 'Light' Dark: 'Dark'" src="https://github.com/slerman12/Detective-Sam/assets/9126603/058ab251-3664-4358-9014-ede3dfb3674c">
+</picture><br><i>Modified AI-generated image via Adobe Express. 
+<br>To do: Find a better image that does me more justice.</i>
+</p>
+
 ### Neurodegeneration experience due to psychiatric (mal)practice
 
 #### Clicking their healing pens three times
@@ -502,14 +510,6 @@ Until recently, [lobotomies](https://psychcentral.com/blog/the-surprising-histor
 As it turns out, the disorder was with the psychiatrists all along. "Toto, we're not in Xanax anymore," the University of Rochester medical system says to itself.
 
 #### "Hungover" chemical waterboarding phase
-
-<p align="center">
-<picture>
-  <source width="20%" media="(prefers-color-scheme: dark)" srcset="https://github.com/slerman12/Detective-Sam/assets/9126603/058ab251-3664-4358-9014-ede3dfb3674c">
-  <img width="20%" alt="Text changing depending on mode. Light: 'Light' Dark: 'Dark'" src="https://github.com/slerman12/Detective-Sam/assets/9126603/058ab251-3664-4358-9014-ede3dfb3674c">
-</picture><br><i>Modified AI-generated image via Adobe Express. 
-<br>To do: Find a better image that does me more justice.</i>
-</p>
 
 At after the 6 month point, I gradually reduced the dose, now entering the ["hungover" chemical waterboarding phase](https://www.reddit.com/r/depression/comments/cksl7u/health_disaster_brain_damage_alopecia_universalis/).
 
