@@ -848,12 +848,13 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
   - "saw knife" might not be what it’s called,
   - a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by;
   - I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor;
-  - I cleaned up the blood with paper towels;
-- then "Tao"/"God" telling me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
-- staying in the woods in the freezing snow all day and night;
-- "Tao"/"God" telling me I had to stay there for a week.
+  - I cleaned up the blood with paper towels.
 
-"Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
+"Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial."
+
+Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
+
+So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" told me I had to stay there for a week; "Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
 
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
