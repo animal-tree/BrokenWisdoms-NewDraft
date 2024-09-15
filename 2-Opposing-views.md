@@ -907,7 +907,7 @@ I thought/felt my legs might've been immobile when I crawled out of the brook, m
 
 The ambulance found me like that at around maybe 3 AM or 4 AM, wet from the brook water and possibly hypothermic with pants partially down though they pulled them up quickly as they carried me up to the ambulance, for transport to the hospital; "Tao"/"God" told me to tell the ambulance responders that I was in there "for pleasure" on a faith regarding my pants that had partially fallen over my boxers and the sex-offender resurrection vision, which I did; and that was all I told the ambulance responders or the first nurses at RGH about what happened — "for pleasure."
 
-#### Hospital intimacy
+#### Hospital
 
 My legs weren't immobile anymore. That was perhaps projected earlier. I felt physically healthy, despite the mental state. They did some measurements and found my CK levels were high and, according to my sister, said that I almost had frostbite.
 
