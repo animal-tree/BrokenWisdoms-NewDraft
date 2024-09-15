@@ -853,8 +853,9 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
   - I cleaned up the blood with paper towels;
 - then "Tao"/"God" telling me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
 - staying in the woods in the freezing snow all day and night;
-- "Tao"/"God" telling me I had to stay there for a week;
-- "Tao"/"God" contradictorily telling me that my mom was dead, or dying, or might die.
+- "Tao"/"God" telling me I had to stay there for a week.
+
+"Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
 
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
