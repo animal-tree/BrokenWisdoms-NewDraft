@@ -1004,6 +1004,22 @@ Despite receiving the content that I got, I was practicing strict asceticisms fo
 
 She was kidnapped and raped. Volyoda was a kid-porn sex-offender. 
 
+I'm supposed to be the resurrection of my grandpa. Instead, I got mistaken by the Karmic forces as Volyoda.
+
+Legs extended in front of me, pants dragged below my boxers, I had the sudden sense, in a vivid vision that was like a black-and-white world, that I was going to resurrect for the next [some number of years] as my wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
+- was a paraplegic,
+- got registered as a sex-offender because of internet child porn, 
+- used to live in a different apartment building,
+- used to nod/wave at me in our apartment complex where he sat outside to smoke when I was a kid walking with the other kids back from the bus,
+- **was at my grandpa's funeral,**
+- depended on his 80-something year-old mom to take care of him to function,
+- was an alcoholic and chain-smoker,
+- later moved into a different apartment unit diagonally across from ours and next to the one that my grandma and grandpa lived in,
+- constantly made our whole apartment hallway reek of pee and cigarettes,
+- smelled like pee and cigarettes, and, interestingly,
+
+ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+
 #### Jealousy
 
 She left her bald Jewish husband after that sex-offense, and saw at least one other guy after, then we began messaging. I had such a severe eczema outbreak after we started interacting that I wasn't able to take her up on any of our plans or her offers to meet. She'd even offered to pay for my plane tickets one night, pulling up the billing on her phone and sending me a photo, to New Orleans, a trip she and her friend were drinking in a hotel in, and also the same city where her trauma with the bald Jewish guy happened, also far away from where they live(d), that she associates with that trauma. She trusted me, a lot, is the point, and not out of stupidity — we connected so well. I trusted her too. I should've gone, but she gave me one night's notice and I still had eczema. The new connection with her was a bigger deal to me than she understood and realized, including later learning of and finding the content she had on the internet. I wanted to see what kind of content she did, so she sent me a blowjob video she'd done with her roommate. She accidently sent me her porn name in one of the things she sent, and I last-minute stupidly looked up her other stuff, which I regret, including learning that that guy she was rooming with and did that blowjob video with was her ex-boyfriend, who she started seeing quickly after leaving the bald Jewish guy after her trauma. She also sent me a photo that I thought was personally for me, that meant a lot to me, and then she made it her profile picture. Other things she sent me were also on different accounts on the internet. I got emotionally weird, awkward, and never ended up getting to meet her. She lost interest in me, and I wanted her to visit rather than me visiting. I was so devastated that I was hospitalized. After I got out, I learned she was going on dates (but in person) with other guys, and I even saw photos of it on social media. She and I stopped chatting around the time of our shared birthdays, days apart in November (and she blocked me). Then I was hospitalized again. More synchronicities followed after that, and some preceded.
