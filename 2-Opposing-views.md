@@ -844,7 +844,7 @@ Was there a high probability that you would die from Covid? Most likely, no. May
 
 About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychotic episode that was diagnosed as a "manic episode" that involved: 
 
-- "Tao"/"God" telling me "He" was going to kill my mom if I didn’t circumcise myself;
+- "Tao"/"God" telling me it/He was going to kill my mom if I didn’t circumcise myself;
 - circumcising myself;
   - I got a clamp iron, and — how to describe the other tool I used? —
   - "saw knife" might not be what it’s called,
