@@ -1078,7 +1078,7 @@ I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-gra
 >
 > ended up dying later that subsequent year in a psychosis revolving around his mom dying.
 
-My life from 2017 onwards (when I started my PhD, from that summer when I first injected Dupilumab), to time of writing (2024), has been worse than his. How can that be? I'm an intelligent, kind, talented, non-predatory person. Tayler was most likely the first person who ever blocked me. Since 2017, Sam Lerman has been placed into an identity far, far from his own. With what exit? 
+My life from 2017 onwards, to time of writing (2024), has been worse than his.
 
 #### Jealousy
 
