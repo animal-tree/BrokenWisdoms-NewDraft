@@ -863,6 +863,8 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
 I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom —
 
 > [!NOTE]
+> ### Mom alive
+> 
 > My mom actually had been nearby, during the day, I learned. By some intuition, she went near those woods, to search for me earlier in the day.
 >
 > By 2 PM, she thought, "No, something's wrong. It's not possible he's wandering this long."
@@ -872,6 +874,8 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 — me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse, and that I was going to resurrect as my paralyzed wheelchair-bound neighbor who got registered as a sex-offender because of internet child porn, who depended on his 80-something year-old mom to take care of him to function, who smelled like pee, who constantly made our whole apartment hallway reek of pee, and who was an alcoholic, a Ukranian man in his 50s named Volyoda who, interestingly, ended up dying later that subsequent year in a psychosis revolving around his mom dying.
 
 > [!NOTE]
+> ### Volyoda vision, precogniton, mom-psychosis, death
+> 
 > The benzo debilitation, combined with the hair loss, will socially and medically alienate me worse than had I myself assumed his handicaps, hygiene, and alcoholism, and committed his crimes. In other words, the resurrection vision came true, in my status and health in society. More than that, my recovery from those injustices, in the subsequent year, only began around the time when [he died in a psychosis revolving around, fear of his mom dying](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md), also with no previous history of mania or psychosis to my knowledge, a 50-something year old man.
 
 My legs were immobile when I crawled out of the brook, me then screaming for the ambulance to a nearly full moon in the woods. My pants had fallen partially down my legs when I had crawled out of the brook and "Tao"/"God" told me not to adjust them on faith.
