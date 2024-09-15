@@ -383,8 +383,6 @@ Deeper summary of my trauma [here](https://github.com/animal-tree/BrokenWisdoms-
 
 The steak diet, which I began after all of these symptoms and withdrawing from benzos, helped my recovery.
 
-The trauma I went through during my psychosis (which the psychiatrists didn't even know about) doesn't compare to the year of benzo neurochemical torture.
-
 The experience of losing my hair has cost me relationships and worsened my social anxiety, and the benzo-brain damage and torture leaves me with PTSD.
 
 <p align="center">
@@ -524,6 +522,8 @@ I tried to kill myself, and my family took the helium tank away.
 I had to buy waist straps to finally start to recover because I couldn't sit up from the debilitated position I shook with anxiety in on the couch.
 
 And after all of this, [literally nothing was cured](https://www.reddit.com/r/kundalini/comments/kvbjhs/does_anyone_feel_physically_moved_by_some/), and I still had the wisdom to never let doctors take authority over my own intelligence in how to gauge my own health, what's lucid vs. "disorder," and which reality — theirs, wherein these conditions are accidents that need to be militantly defeated (wherein meditation, yoga, good social life, intelligence, healthy Paleo diet, and maybe even an antipsychotic wouldn't suffice), or mine, wherein their practices are full of "psychiatric disorder" (and, as will be shown, more than just psychiatric, but environmental, dietary, social, and more) — makes more sense.
+
+The trauma I went through during my psychosis (which the psychiatrists didn't even know about) doesn't compare to the year of benzo neurochemical torture.
 
 ### Henry Kautz
 
