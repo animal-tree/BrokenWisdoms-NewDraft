@@ -833,7 +833,9 @@ Those environments are where we learn that some people are inferior to others, n
 
 > Chapter is in progress
 
-"Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself, me fearing the probable chance of the threat's being true, due to the extreme evidence I had up to that point that what was happening to me in meditation state wasn't delusion, combined with the rational understanding for the physics/intelligence possibility of such a force actually interacting with me, proceeding to circumcise myself.
+I had good evidence that what was happening to me in meditation and yogic states wasn't delusion. On top of that, I had a rational understanding of how a possible physics-based universe-intelligence like Tao could be involved in those senses. I'll refer to those yogic "grace" guidances as "Tao"/"God."  The I Ching's answers, among other synchronciities, made the plausibility even higher, and given a sufficiently unwanted threat from those forces, the probability would be high enough to terrify me.
+
+"Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself, me fearing the chance of the threat's being true, proceeding to circumcise myself.
 
 I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by; I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor; I cleaned up the blood with paper towels. "Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial." 
 
