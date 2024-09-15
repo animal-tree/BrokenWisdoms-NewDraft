@@ -837,7 +837,7 @@ I had good evidence that what was happening to me in meditation and yogic states
 
 Was there a high probability that you would die from Covid? Most likely, no. Maybe 2%, depending who you are. And yet, the risk was high enough for an entire global lockdown. If your mom's life was at threat, would a 2% chance of that threat being realized be enough to get you to... social distance? What about, to wear a mask? How far would you go with a 2% chance of your mom's life being at threat?
 
-On Christmas, 2018, the trauma I went through included many moe details than the ones I specified at the start of this book. Let's recount them now!
+On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book. Let's recount them now!
 
 In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself, me fearing the chance of the threat's being true, proceeding to circumcise myself.
 
