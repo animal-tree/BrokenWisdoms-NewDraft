@@ -840,13 +840,21 @@ I had good evidence that what was happening to me in meditation and yogic states
 
 Was there a high probability that you would die from Covid? Most likely, no. Maybe 2%, depending who you are. And yet, the risk was high enough for an entire global lockdown. If your mom's life was at threat, would a 2% chance of that threat being realized be enough to get you to... social distance? What about, to wear a mask? How far would you go with a 2% chance of your mom's life being at threat?
 
-In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded based on the glimpse of information I peered in that second I researched how to do it.
+<!-- In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded based on the glimpse of information I peered in that second I researched how to do it. -->
 
-I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by. I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor. I cleaned up the blood with paper towels. 
+About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychotic episode that was diagnosed as a "manic episode" that involved: 
 
-Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
-
-So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" told me I had to stay there for a week; "Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
+- "Tao"/"God" telling me "He" was going to kill my mom if I didn’t circumcise myself;
+- circumcising myself;
+  - I got a clamp iron, and — how to describe the other tool I used? —
+  - "saw knife" might not be what it’s called,
+  - a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by;
+  - I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor;
+  - I cleaned up the blood with paper towels;
+- then "Tao"/"God" telling me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in.
+- staying in the woods in the freezing snow all day and night;
+- "Tao"/"God" telling me I had to stay there for a week;
+- "Tao"/"God" contradictorily telling me that my mom was dead, or dying, or might die.
 
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
