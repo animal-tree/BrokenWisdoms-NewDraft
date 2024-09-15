@@ -963,10 +963,10 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 >
 > Also, [here is a more believable summary of this psychosis from an earlier version/draft/"commit"](https://github.com/animal-tree/BrokenWisdoms-TheReturnofNort/blob/57fde86227cbc35a4d7e8aa3e02f199038f6663c/2-Opposing-views.md#psychosis-and-rochester-general-hospital-rgh), and here is a separate summary of these [synchroncities](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md).
 
+<!-- RGH discharged me not much more than one week after admission, with diagnoses "bipolar mania," "catatonia." -->
+
 > [!WARNING]
 > As this was happening, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
-
-RGH discharged me not much more than one week after admission, with diagnoses "bipolar mania," "catatonia."
 
 #### Future hair losses
 
