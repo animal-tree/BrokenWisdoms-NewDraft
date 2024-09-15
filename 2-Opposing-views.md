@@ -861,7 +861,7 @@ So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" tol
 
 #### Baptism
 
-I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom —
+I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom, then me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse.
 
 > [!NOTE]
 > ### Mom alive
@@ -872,16 +872,38 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 >
 > I wasn't home when she woke up, had been doing lots of yoga every day, it was a freezing cold winter day, my car was parked there, and my mom was waiting. So she walked through the snow to look for me in that woods area, she thought I was walking near the brook, that maybe I fell in there, she searched and was looking for tracks, she thought maybe she even found tracks, and she followed them through snow, near houses, all the way to a road, different than the one I reached, was cold, realized something was wrong, went home, called the police that I was missing, and they came over, tried to unlock my phone which I’d left at home, my mom showed them pictures of me, they went to search the university, my cousin Lena and her husband David were driving around looking for me, and my sister was calling the police to get updates.
 
-— me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse, 
-
 #### Precognition
 
-and that I was going to resurrect as my paralyzed wheelchair-bound neighbor who got registered as a sex-offender because of internet child porn, who depended on his 80-something year-old mom to take care of him to function, who smelled like pee, who constantly made our whole apartment hallway reek of pee, and who was an alcoholic, a Ukranian man in his 50s named Volyoda who, interestingly, ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+Legs extended in front of me, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
+- was a paraplegic,
+- used to live in a different apartment building,
+- used to nod/wave at me in our apartment complex when I was a kid walking back from the bus,
+- got registered as a sex-offender because of internet child porn, 
+- depended on his 80-something year-old mom to take care of him to function,
+- was an alcoholic,
+- chain-smoked,
+- constantly made our whole apartment hallway reek of pee and cigarettes, 
+- smelled like pee and cigarettes, and, interestingly,
+
+ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+
+<!--
+Legs extended in front of me, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda. The vision was pretty horrifying, that for the next [some number of years] I would live in the black-and-white horror world of Volyoda.
+
+Volyoda
+- depended on his 80-something year-old mom to take care of him to function,
+- was an alcoholic,
+- got registered as a sex-offender because of internet child porn,
+- constantly made our whole apartment hallway reek of pee and cigarettes,
+- and smelled like pee and cigarettes, who, interestingly,
+
+ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+-->
 
 > [!NOTE]
 > ### Volyoda vision, precogniton, mom-psychosis, death
 > 
-> The benzo debilitation, combined with the hair loss, will socially and medically alienate me worse than had I myself assumed his handicaps, hygiene, and alcoholism, and committed his crimes. In other words, the resurrection vision came true, in my status and health in society. More than that, my recovery from those injustices, in the subsequent year, only began around the time when [he died in a psychosis revolving around, fear of his mom dying](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md), also with no previous history of mania or psychosis to my knowledge, a 50-something year old man.
+> The benzo debilitation, combined with the hair loss, will socially and medically alienate me worse than had I myself assumed his handicaps, hygiene, and alcoholism, and committed his crimes. In other words, the resurrection vision came true, in my status and health in society. More than that, my recovery from those injustices, in the subsequent year, only began around the time when [he died in a symmetrical/delusional psychosis revolving around *fear of his mom dying*](https://github.com/animal-tree/SuspiciousnessofSynchronicitiesAndParanoia/blob/main/Does-anyone-else-think-this-is-proof-of-God%3F.md), also with no previous history of mania or psychosis to my knowledge, a 50-something year old man.
 
 I thought/felt my legs might've been immobile when I crawled out of the brook, me then screaming for the ambulance to a nearly full moon in the woods. My pants had fallen partially down my legs when I had crawled out of the brook and "Tao"/"God" told me not to adjust them on faith.
 
@@ -952,6 +974,14 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 
 > [!WARNING]
 > As this was happening, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
+
+Not much more than one week after admission, RGH discharged me.
+
+- **More than two weeks since the first hospitalization**, I end up not sleeping all night;
+- my sister happened to visit the next day;
+- due to having not slept all night, she was worried I might be going through another "manic" episode and insisted to my mom and me to drive me to **the University of Rochester’s Strong Hospital;**
+- **the doctors there didn't question the prior mania nor catatonia, nor ask for any further details about that earlier hospitalization or the events that led up to it;**
+- **I was there because my sister was worried.**
 
 #### Future hair losses
 
