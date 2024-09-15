@@ -861,7 +861,7 @@ So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" tol
 
 #### Baptism
 
-I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom, then me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse.
+I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom — 
 
 > [!NOTE]
 > ### Mom alive
@@ -872,19 +872,11 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 >
 > I wasn't home when she woke up, had been doing lots of yoga every day, it was a freezing cold winter day, my car was parked there, and my mom was waiting. So she walked through the snow to look for me in that woods area, she thought I was walking near the brook, that maybe I fell in there, she searched and was looking for tracks, she thought maybe she even found tracks, and she followed them through snow, near houses, all the way to a road, different than the one I reached, was cold, realized something was wrong, went home, called the police that I was missing, and they came over, tried to unlock my phone which I’d left at home, my mom showed them pictures of me, they went to search the university, my cousin Lena and her husband David were driving around looking for me, and my sister was calling the police to get updates.
 
+— me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse,
+
 #### Precognition
 
-Legs extended in front of me, pants dragged below my boxers, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
-- was a paraplegic,
-- used to live in a different apartment building,
-- used to nod/wave at me in our apartment complex where he sat outside to smoke when I was a kid walking with the other kids back from the bus,
-- got registered as a sex-offender because of internet child porn, 
-- depended on his 80-something year-old mom to take care of him to function,
-- was an alcoholic and chain-smoker,
-- constantly made our whole apartment hallway reek of pee and cigarettes, 
-- smelled like pee and cigarettes, and, interestingly,
-
-ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+and that I was going to resurrect as my paralyzed wheelchair-bound neighbor who got registered as a sex-offender because of internet child porn, who depended on his 80-something year-old mom to take care of him to function, who smelled like pee, who constantly made our whole apartment hallway reek of pee, and who was an alcoholic, a Ukranian man in his 50s named Volyoda who, interestingly, ended up dying later that subsequent year in a psychosis revolving around his mom dying.
 
 <!--
 Legs extended in front of me, I had the sudden sense that I was going to resurrect as my paralyzed wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda. The vision was pretty horrifying, that for the next [some number of years] I would live in the black-and-white horror world of Volyoda.
