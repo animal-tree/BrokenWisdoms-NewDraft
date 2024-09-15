@@ -968,7 +968,7 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 > [!WARNING]
 > As this was happening, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
 
-#### Volyoda 
+#### Resurrection 
 
 In the resulting hospitalization I was coerced against my will to take high doses of benzos, a drug whose long-term application doesn't help the underlying issues of schizophrenia or whatever I had, by clinicians that contradicted themselves and each other about the duration of the prescription, and before month 4, I was brain damaged by the drug, and in excruciating agony due to the GABA downregulation induced by that drug.
 
