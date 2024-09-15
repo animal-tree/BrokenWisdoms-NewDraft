@@ -974,7 +974,7 @@ After that, my Kundalini sensations seemed jammed, like I was metaphorically an 
 >
 > I think, despite the delusions/psychosis, all of this, including the tongue-swallowing, had something to do with Kundalini rising, you know, on account of the many months of physical sensations that weren't delusional amid many disciplines.
 > 
-> There is also some evidence that I was trying to "abort" the Kundalini "rising":
+> There is also some interpretation that I was trying to "abort" the Kundalini "rising":
 >
 > Back to the woods, daytime:
 >
