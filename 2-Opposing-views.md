@@ -833,13 +833,14 @@ Those environments are where we learn that some people are inferior to others, n
 
 > Chapter is in progress
 
+> [!WARNING]
+> On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book. Let's recount them now!
+
 I had good evidence that what was happening to me in meditation and yogic states wasn't delusion. On top of that, I had a rational understanding of how a possible physics-based universe-intelligence like Tao could be involved in those senses. I'll refer to those yogic "grace" guidances as "Tao"/"God."  The I Ching's answers, among other synchronicities, made the plausibility even higher, and given a sufficiently unwanted threat from those forces, the probability would be high enough to terrify me.
 
 Was there a high probability that you would die from Covid? Most likely, no. Maybe 2%, depending who you are. And yet, the risk was high enough for an entire global lockdown. If your mom's life was at threat, would a 2% chance of that threat being realized be enough to get you to... social distance? What about, to wear a mask? How far would you go with a 2% chance of your mom's life being at threat?
 
-On Christmas, 2018, the trauma I went through included many more details than the ones I specified at the start of this book. Let's recount them now!
-
-In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded somewhat *ad lib* based on the glimpse of information I peered in that second I researched how to do it.
+In the dark early morning before I left my apartment, "Tao"/"God" told me it/He was going to kill my mom if I didn’t circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the "YouTube tutorial. Fearing the chance of the threat's being true, I proceeded based on the glimpse of information I peered in that second I researched how to do it.
 
 I got a clamp iron, and — how to describe the other tool I used? — "saw knife" might not be what it’s called, a kitchen knife with really toothy edges that by all expectations should’ve sliced through with the full strength I was sawing it down by. I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor. I cleaned up the blood with paper towels. 
 
