@@ -979,7 +979,7 @@ I was still afraid my mom was going to die. We were moved to a different room an
 
 I went into a conscious yogic surrender of all muscle due to a command from those yogic grace guidances to do so, even as the doctors pushed and wheeled my limp body forward to the MRI machine, thinking I was unconscious, as I was following those yogic grace guidances. They joked about me being "Jesus" bullying/sarcastically while they wheeled my body forward to the MRI machine. I think either the intense silence with them earlier or the shaking hands with the police officers even earlier (not sure they were there to see that) is what might've triggered their bullying.
 
-The MRI machine was like a shock that I thought "Tao"/"God" used the EM beams of to snap something in my brain, and that all would be exactly the right effect as long as I stayed perfectly in tune with that yogic grace.
+The MRI machine was like a shock that I thought "Tao"/"God" used the EM beams of to snap something in my brain, and that all would be exactly the right effect as long as I stayed perfectly in tune with that yogic grace. The machine pulled me back under that light, it was bright I recall for a second like a flash, perhaps my eyes were closed, and I imagined something in my neurology clicked, split, or like I'd been subjected to a surgical operation.
 
 After that (almost definitely independent to the MRI), my Kundalini sensations seemed jammed, like I was metaphorically an airbender trapped in ice. 1.5 years later, the first thing Tayler would message me, in a comment of my post in an ironic Facebook group that my college theater director recommended, was about cosplaying together as Katara and Aang. Katara was a waterbender who, in that canon, brought Aang out of ice.
 
