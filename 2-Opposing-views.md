@@ -859,7 +859,7 @@ So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" tol
 > [!WARNING]
 > As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
 
-#### Brook "baptism"
+#### Baptism
 
 I lay in the ground, hearing the train rumble. A part of me thinks it's going to swoop through where I am and run over me. It chugged and whistled. The geese, who'd been taunting me, had flown away. The night rumbled, dark. I sensed/feared my mom was dead, or dying, or might die, and had done everything possible to evacuate/abort my energy, sitting upright, maneuvering those Kundalini senses by force rather than deep connection, and then: a sudden shock. I believed that my mom had come to find me and had fallen in the brook drowning, perhaps hearing a splash or a scream. I scrambled through the woods, pushing branches out of the way, getting cut through my arms as I ran to where I thought, or maybe heard, my mom was drowning, in the darkness, in the freezing water where the water might've not been clean since that was where I thought the maybe-unused sewage pipe maybe was. I jumped in, and flailed my arms around, going underwater trying to find my mom —
 
