@@ -872,7 +872,11 @@ I lay in the ground, hearing the train rumble. A part of me thinks it's going to
 >
 > I wasn't home when she woke up, had been doing lots of yoga every day, it was a freezing cold winter day, my car was parked there, and my mom was waiting. So she walked through the snow to look for me in that woods area, she thought I was walking near the brook, that maybe I fell in there, she searched and was looking for tracks, she thought maybe she even found tracks, and she followed them through snow, near houses, all the way to a road, different than the one I reached, was cold, realized something was wrong, went home, called the police that I was missing, and they came over, tried to unlock my phone which I’d left at home, my mom showed them pictures of me, they went to search the university, my cousin Lena and her husband David were driving around looking for me, and my sister was calling the police to get updates.
 
-— me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse, and that I was going to resurrect as my paralyzed wheelchair-bound neighbor who got registered as a sex-offender because of internet child porn, who depended on his 80-something year-old mom to take care of him to function, who smelled like pee, who constantly made our whole apartment hallway reek of pee, and who was an alcoholic, a Ukranian man in his 50s named Volyoda who, interestingly, ended up dying later that subsequent year in a psychosis revolving around his mom dying.
+— me crawling out of the freezing brook feeling unable to move due to the cold, as I envisioned that my mom was dead having drowned, looking at me with pity and remorse, 
+
+#### Precognition
+
+and that I was going to resurrect as my paralyzed wheelchair-bound neighbor who got registered as a sex-offender because of internet child porn, who depended on his 80-something year-old mom to take care of him to function, who smelled like pee, who constantly made our whole apartment hallway reek of pee, and who was an alcoholic, a Ukranian man in his 50s named Volyoda who, interestingly, ended up dying later that subsequent year in a psychosis revolving around his mom dying.
 
 > [!NOTE]
 > ### Volyoda vision, precogniton, mom-psychosis, death
