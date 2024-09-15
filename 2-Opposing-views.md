@@ -1064,7 +1064,7 @@ She was kidnapped and raped. Volyoda was a kid-porn sex-offender.
 I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-grandpa-died). Instead, I got mistaken by societal placement forces as Volyoda, who most-certainly is not my grandpa.
 
 > [!WARNING]
-> Legs extended in front of me, pants dragged below my boxers, I had the sudden sense, in a vivid vision that was like a black-and-white world, that I was going to resurrect for the next [some number of years] as my wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
+> Legs extended in front of me, pants dragged below my boxers, I had the sudden sense, in a vivid vision that was like a black-and-white world, that I was going to resurrect for the next [some number of years, possibly 10] as my wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
 > - was a paraplegic,
 > - got registered as a sex-offender because of internet child porn, 
 > - used to live in a different apartment building,
