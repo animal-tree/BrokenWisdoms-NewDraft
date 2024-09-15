@@ -1004,7 +1004,7 @@ Despite receiving the content that I got, I was practicing strict asceticisms fo
 
 She was kidnapped and raped. Volyoda was a kid-porn sex-offender. 
 
-I'm supposed to be the resurrection of my grandpa. Instead, I got mistaken by the Karmic forces as Volyoda.
+I'm supposed to be the resurrection of my grandpa. Instead, I got mistaken by the "karmic forces" as Volyoda.
 
 Legs extended in front of me, pants dragged below my boxers, I had the sudden sense, in a vivid vision that was like a black-and-white world, that I was going to resurrect for the next [some number of years] as my wheelchair-bound neighbor, a Ukranian man in his 50s named Volyoda, who
 - was a paraplegic,
