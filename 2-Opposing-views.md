@@ -1078,7 +1078,7 @@ I'm supposed to be the resurrection of my grandpa, [the next Doctor](#how-my-gra
 >
 > ended up dying later that subsequent year in a psychosis revolving around his mom dying.
 
-My life since has been worse.
+My life from 2017 onwards, to time of writing (2024), has been worse that his. 
 
 #### Jealousy
 
