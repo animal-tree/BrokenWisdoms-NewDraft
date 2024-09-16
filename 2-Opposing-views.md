@@ -1111,6 +1111,8 @@ However, adding this seems to undermine just how severe the injustice we're talk
 
 The bullies at the University of Rochester's hospital and research institutions don't understand that they botched every action they took in their judgements, treatments, policies, decision-making, and (as will be shown, though hopefully it's apparent already) rulings, and did everything humanly possible, sometimes by blunder rather than on purpose, to take away and waste my dignity, money, social life, physical body, and work.
 
+### Intimacy healing 
+
 #### Intimacy healing
 
 Depression, anxiety, PTSD, and [touch starvation](https://youtu.be/4zJXr4jeP5w?si=bQCCeK4_Cxv1MbL1) might be treatable through intimacy.
@@ -1157,6 +1159,10 @@ I'm anti-prohibition. My message is only this: the best experiences of a person'
 And that must be understood as distinct from capitalistic drug-like fixes that people pay for.
 
 Intimacy healing is a step towards that, starting with medical institutions.
+
+#### Meetup, events, kink groups, living communities, dating apps, organized consent-sharing tech, arranged dating nightlife tech
+
+I went to meetups regularly, almost every week, to try and find a satisfying social life. By synchronistic chance, multiple such communities were opened up to me, where I got to see the existing state of the art of socializing/intimacy organizations/groups, resources, and tech. My general sense is that most of them have a lot of good, but most of them, or all, are insufficient and can be made much better with some creativity, investment, and open-mindedness. During this time, a lot of possible new technologies occurred to me that might serve the purpose of creating intimacy and giving people access to satisfying genuine/authentic social lives than what’s currently available. Describing those technology ideas is sort of outside the scope of what my current state of dramatically-ironic-isolation makes me willing to do for this book, as this book is already achieving many things at once before it needs to start imagining what Elon Musk can do. I don't exactly have the resources to build all these things, nobody's paying me to write the blueprints, and my morale is literally lower than were I a 50-something year-old alcoholic paraplegic sex-offender. Overall, the best was a student theater living community in college before my PhD, a building where we all had some common purpose, hosted theater productions, improv comedy, concerts, parties, and so on, where we lived. Then, during the last years, Meetup and other organizations that exist were all good, too, but something was still lacking and unsatisfying, and my sense was that others still felt lonely in those groups, too. From temporary living communities to bar-centric in-person dating apps to integrated consent-specifying technologies (e.g., “I would not mind being approached in a public space”) to connection-arranging event-recommender technologies, I have a number of ideas that might go a long way in helping the root fundamental problems that all social animals suffer from, if not more so than food, housing, temperature warmth, and so on. Human connection is a basic need and human right.
 
 #### AI
   
