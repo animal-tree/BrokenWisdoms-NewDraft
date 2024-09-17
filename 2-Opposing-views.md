@@ -267,7 +267,7 @@ Nobody understands this mechanism. To understand this mechanism, you'd have to s
 
 #### Psychiatric unit
 
-In my second hospitalization, the environment was much better than RGH's. I made friends with Sarah and Hudson and others. We [played](https://youtu.be/cco_DvSzrts?si=pmfrQ4XEaLF1teEK&t=51) Guitar Hero together, there was a piano, there were TVs, one of the public rooms had big windows, we even were taken across floors of the hospital for music jamming sessions with lots of instruments, they had their yoga and meditation instructions as well, and of all of my hospitalizations to come, this was perhaps the best care unit I was gated by armored vault into.
+In my second hospitalization, the environment was much better than RGH's. I made friends with Sarah and Hudson, both early 20s like me, and others. We [played](https://youtu.be/cco_DvSzrts?si=pmfrQ4XEaLF1teEK&t=51) Guitar Hero together, there was a piano, there were TVs, one of the public rooms had big windows, we even were taken across floors of the hospital for music jamming sessions with lots of instruments, they had their yoga and meditation instructions as well, and of all of my hospitalizations to come, this was perhaps the best care unit I was gated by armored vault into.
 
 #### Sarah
 
