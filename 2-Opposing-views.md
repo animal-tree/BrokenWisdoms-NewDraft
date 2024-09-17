@@ -913,7 +913,8 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
 
 "Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the ["YouTube tutorial."](https://youtu.be/PvgLlilnHKc?si=bBi7m-RUpFW_6LSi)
 
-Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in. <!-- (note: "bipolar mania" was probably a misdiagnosis, and [long-term benzo use is especially not recommended for schizophrenia](https://thischangedmypractice.com/long-term-benzodiazepine-mortality-schizophrenia/)). -->
+Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in. 
+<!-- (note: "bipolar mania" was probably a misdiagnosis, and [long-term benzo use is especially not recommended for schizophrenia](https://thischangedmypractice.com/long-term-benzodiazepine-mortality-schizophrenia/)). -->
 
 So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" told me I had to stay there for a week; "Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
 
