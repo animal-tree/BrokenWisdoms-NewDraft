@@ -911,7 +911,7 @@ About 5 - 8 months after the hair loss, on Christmas Eve, 2018, I had a psychoti
   - I think "Tao"/"God" figured "good enough" after that, seeing as all my strength was used, and blood was over the kitchen floor;
   - I cleaned up the blood with paper towels.
 
-"Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the ["YouTube tutorial"](https://youtu.be/do9xPQHI9G0?si=JzF8mAPYPltCRKFp).
+"Tao"/"God" had threatened to kill my mom if I didn't circumcise myself. I was Googling how to do it properly in the dark early morning, but the urgency of the threat kind of compelled me to skip the ["YouTube tutorial."](https://youtu.be/do9xPQHI9G0?si=JzF8mAPYPltCRKFp)
 
 Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhere, and that being near my mom was going to drain her and kill her because of the — I don't know what to call it, transcendent, spiritual, schizophrenic — state I was in (note: "bipolar mania" was probably a misdiagnosis).
 
