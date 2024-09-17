@@ -379,6 +379,8 @@ Symptoms from taking the benzos as prescribed included:
 - PTSD from all of these symptoms and the recurrence of a malpractice-induced perhaps-permanent trauma
 - [Scientifically-backed](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10309976/) fear of permanent damage
 
+I tried to kill myself, and my family took the helium tank away.
+
 Deeper summary of my trauma [here](https://github.com/animal-tree/BrokenWisdoms-NewDraft/blob/main/2-Opposing-views.md#my-trauma) (you may have to scroll up).
 
 The experience of losing my hair has cost me relationships and worsened my social anxiety, and the benzo-brain damage and torture leaves me with PTSD.
