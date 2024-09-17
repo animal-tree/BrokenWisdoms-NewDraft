@@ -289,8 +289,6 @@ I showed my MHDPA innovation paper to Sarah. She was amazed that she could read 
 
 Not that my lucidity needed evidence, but I explained the methods of late-2022 ChatGPT to inpatient and visitors, in early-February, Winter, 2019, while drugs were altering and innovating on the functioning of my biological neural networks.
 
-Sarah was blonde, 24, a year older than me.
-
 #### Hudson
 
 Our other companion was Hudson, who caught me as I was being discharged and handed me this letter in an envelope, that I opened later from my apartment:
