@@ -1059,7 +1059,117 @@ Those environments are where we learn that some people are inferior to others, n
 >
 > I met Mobi in the October, 2020 "Bar Mitzvah hospitalization." A couple years later, I learned that Sarah had met Mobi in one of their hospitalizations, too, that he'd even braided Sarah's hair. Mobi was a recurrent inpatient care unit psychiatric recipient. He was 16, clearly intelligent, had a "sober" intelligence and humor, was respectful, kind, and chill. They'd been giving him benzos for 2 years at that point, on and perhaps-sporadically-off, from the age of about 14, and he was in there mainly, or perhaps only, for drug problems and addiction. Acclimating to benzos, one's brain becomes deprived of GABA and will crave something, usually drugs, to take the literal neural edge off, to silence those disproportionate Glutamates and other action potentials whose balancing complement, GABA, is downregulated, throughout the brain. Benzos are a hard drug, and are as addictive as any hard drug. He was a 16-year-old drug addict, and they kept institutionalizing him for his drug issues and prescribing daily benzos. 
 
+#### Future hair regrowths
+
+My pubic hair grew back in 2021 while doing a strict steak/salmon-only diet with some Paleo leniency — it was definitely still grown back while I was doing that diet in December, 2021 — and fell out gradually. 
+
+My eyelashes started growing back for the first time in summer, 2023, when I'd started doing the steak/salmon-only diet again, and my best friend returned into my life, and fell out shortly after I was terminated, at which time I also had gone more lenient on my steak/salmon-only diet, due to the combination of more stress (from that termination) and lacking an income. Those three eyelashes that had grown back one by one gradually up to that point, that summer, starting that summer, grew back for the first time ever in the 5 full years since losing all of my hair. Then each fell out, but I attribute them to my best friend, who returned that summer, and probably also the correlating steak/salmon-only diet that I'd resumed before his return, earlier in 2023, after the weather had already gotten warm. Though, besides steak/salmon during that period when my eyelashes started to grow back for the first time, I allowed myself organic tea on that one, as well. Then, when I was terminated by this wonderful university of mine that had cost me my hair in the first place, my newly miracle'd eyelashes fell out suddenly.
+
+However, adding this seems to undermine just how severe the injustice we're talking about is.
+
+The bullies at the University of Rochester's hospital and research institutions don't understand that they botched every action they took in their judgements, treatments, policies, decision-making, and (as will be shown, though hopefully it's apparent already) rulings, and did everything humanly possible, sometimes by blunder rather than on purpose, to take away and waste my dignity, money, social life, physical body, and work.
+
+#### Intimacy healing
+
+Depression, anxiety, PTSD, and [touch starvation](https://youtu.be/4zJXr4jeP5w?si=bQCCeK4_Cxv1MbL1) might be treatable through intimacy.
+
+> [!WARNING]
+> 
+> In the hospital-provided housing that Sarah got after the hospitalization, I visited for Thanksgiving. Her neighbor made food, including pork chops and mashed potatoes, that we ate in her neighbor's unit. I brought yams I'd made previously before the invitation.
+> 
+> Pork is not a metaphor for sex. Yams is not a metaphor for boobs. Thanksgiving is a metaphor for how grateful I was for the good food.
+>
+> She told me then that she'd had sex with the 50-something year old psychiatric ward janitor while hospitalized, in the psychiatric unit. They got into a relationship afterwards, and she'd broken up with him. 
+>
+> Through the captivity and drugging of her with benzos, the University of Rochester's Strong Hospital facilitated that.
+>
+> Benzos act like alcohol, and are incredibly personality-disinhibiting. They're even similar to GHB, also a GABA agonist, but which additionally acts on the GHB receptor. All three reduce consciousness, and predispose a horny person to making bad decisions, or good decisions based on a temporary need induced by confinement.
+>
+> However, perhaps there is a better alternative for those needs, in (1) treating them, rather than drugs, and (2) in self-treating them, rather than janitors. No drug-captivity-induced date-accident needed.
+>
+> But I'm sure she's thankful for your services (that's not sarcasm — hospital-provided outpatient housing is one of the most-medical things I've ever seen them do; I had no idea they did that).
+
+I propose a new branch of medicine called intimacy healing, one with an ontology like as follows: communications as a subset of intimacy healing, intimacy healing as a subset of medicine, with overlaps but distinction from sex work. 
+
+Independently, sex work should be legalized, regarded as a subset of fine art, formally and academically, but distinct from intimacy healing, and the branches of medicine and fine art can overlap.
+
+Radical idea, but that's the direction. Humans need each other. Relationships are the most fundamental part of life, more of a basic necessity than food, water, shelter, or drugs.
+
+Perhaps my alternative would've served better, and given her a spiritual, healthy way to resolve a human struggle that all of us share.
+
+#### The artificial and synthetic
+
+I'm all for [#SexycareForAll](#comedic-aside-sexier-moments-during-chenliang-tenure), but that's not quite what I have to say.
+- And note, via humans.
+
+The use of drugs, porn, movies, TV shows, and technologies shouldn't be judged or shamed. 
+
+Many people are happy relying on those things, others appreciate the art.
+
+Big pharma companies find value in their mass proliferation re: drugs.
+
+And tech companies find value in their mass proliferation re: porn, fleshlights, dildos.
+
+I'm anti-prohibition. My message is only this: the best experiences of a person's life shouldn't be synthetic. Those experiences should be brought into the real world, for people who want or need them, where the experiences people need and want are available foremost in the real world, via people, sincerely, intimately, and via touch, no matter one's "social class." [Imagine all the people, living life in peace.](https://youtu.be/YkgkThdzX-8?si=YNzRr6gnKtG4jywG)
+
+And that must be understood as distinct from capitalistic drug-like fixes that people pay for.
+
+Intimacy healing is a step towards that, starting with medical institutions.
+
+#### AI
+  
+AI is a field with a lot of ethics questions, and the [militaristic](https://www.politico.eu/article/robots-coming-ukraine-testing-ground-ai-artificial-intelligence-powered-combat-war-russia/), [survelliance](https://bigdatachina.csis.org/the-ai-surveillance-symbiosis-in-china/#:~:text=With%20regard%20to%20China%2C%20it,data%20acquired%20through%20government%20contracts.) uses out there, in combination with this paper factory progress and pressure to turn out papers, is a boding sign that those questions are being answered extraordinarily incorrectly by the people giving the grades.
+
+## Niaz Abdolrahim (okay, some not-tragedy)
+
+<p align="center">
+<a href="https://github.com/user-attachments/assets/e4288579-4f0b-4ac3-a8f2-ddbbf728128d">
+ <picture>
+   <source width="58%" media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/9e2cf8f1-f20f-4506-9e53-c172dab68539">
+   <img width="58%" alt="Text changing depending on mode. Light: 'Light' Dark: 'Dark'" src="https://github.com/user-attachments/assets/e4288579-4f0b-4ac3-a8f2-ddbbf728128d">
+</picture>
+</a>
+</p>
+
+In my fourth year, I was assigned to also work in the Mechanical Engineering group that Niaz (who was a great PI) led. Then in my 6th year, it was still while working half-part there, with Niaz, Chenliang, and team, that Chenliang (who symbolically led the deep learning side of the work, with me leading the deep learning side of the work) called me into his office in the CS building where his lab meetings, including me (both my office and attendance to those meetings, as well), were held, towards which most of my 70-hour-per-week labor was going, to inform me that he didn't think I had enough papers (this was while he knew we were in the middle of a paper-review, a paper on which I had second-author, on which Chenliang, and according to Chenliang, Niaz, had previously offered me first-author — and I rejected — twice — out of fairness to the other PhD student — for a paper that got highly positive reviews), and due to that low number of publications, he would be deserting.
+
+The paper got accepted, after my termination notice and on the day before my last day as an employed student, in fact, synchronistically, a minute after I referenced it in the email I sent shown in the next ["Disproof"](3-Disproof.md#email-10302023) chapter.
+
+Chenliang put me on the Mechanical Engineering lab as the source of my funding, on a project which I led, which was funded by two pretty-major grants that I helped write, which included my ideas, which somehow, by Chenliang's and very-much-not-Niaz's decision, wouldn't fund me any longer.
+
+Niaz, not an "opposing view," and someone I really like, was my other Principle Investigator next to Chenliang. Oh but to be clear, I was still in Chenliang's lab and reporting to that lab as well every week. I was doing extreme amounts of work for both, the latter of which I haven't really started describing yet. 
+
+For Niaz's group, I did a lot of programming, data generation and pipeline-optimizing; much of the systems; idea invention and schematic designing; grant-idea-providing-and-writing-and-diagram-designing; and all of the model building and experiment running and plotting.
+
+In Chenliang's group, I was still trying to do my own research, which was pretty heavily bottlenecked. That's part of why I was practicing every discipline imaginable — from Wim Hof method freezing cold baths to Transcendental Meditation to yoga to strict steak/salmon-only diet to every ascetecism I could not-hope for — to achieve the [full scope](https://github.com/AGI-init/UnifiedML-legacy) of what I wanted to do for [both](https://github.com/AGI-init/XRDs).
+
+When Chenliang told me he couldn't be my advisor, I asked Niaz if she could be. She said the process of transferring to the mechanical engineering department formally wasn't that simple, that maybe she could contact the Dean, and that she sympathized sincerely. She also advised that I reach out to the CARE Network, something I at first took some mild offense to, because I messaged her on Slack about the key specifics of the medical institution hair and benzo trauma, and she clarified, no, she meant reaching out to them for a lawyer. I appreciated that. I'm grateful Chenliang forced me on that work because of Niaz. But I did a lot for them in the Mechanical Engineering department, concurrent with my studies in AI separately in his lab, and I had no choice because that project's grants, were funding me, and I helped write two of their big ones (endowing the pretty-small group with upwards of a million dollars), with their names as authors and me uncredited. I did a lot of engineering and data work for them that was independent to my research, that ordinarily would get paid a 6-figure salary for, while I have never been paid more than $15/hr in my life, and the termination left me with tons of student debt.
+
+So you see, because my family was poor, my student debt (for the University of Rochester) was subsidized for as long as I was a student. So when I was terminated, that interest started accumulating, and I had/have to pay them/the lenders the large sum of money (in the above-the-Biden-loan-cancellation ranges, even the Pell grant one I would've gotten). So literally speaking, financially, I was "indebted for their services" for terminating me, which I had to swallow. This is the same University of Rochester I've been describing for multiple chapters now.
+
+Makes me want to go #NotEnoughPapers, for the many thousands of dollars reverse-severance they gave me as gratitude.
+
+However, that lab is the least of the work I did ([here](5-Early-work-in-program.md)/[here](6-Indebted.md)/[here](https://github.com/AGI-init/UnifiedML-legacy)/[here](https://github.com/AGI-init/XRDs)/[here](https://github.com/slerman12/Builder)/[here](https://github.com/AGI-init/Tributaries)/[here](https://docs.google.com/presentation/d/1ZQFeiOKSU2teVGg5EHlgREAi8pJY_Mr1CJ3H2pfFBfI/edit?usp=sharing)), at sometimes slave wage by force, with PhD requirements that were usually uniquely put on me, from the same institution that mutilated the hair and youth from my body and face, and neurochemically gassed my brain, then terminated me and scapegoated me for their 6 years of atrocities, negligences, and greed.
+
+### Uncle Slava
+
+My uncle came over, quickly. I interviewed him a bit about his physics method. A compay here in America hired him, becauseh was the only one who knew how to do something, something speicfic to lens-manufacturing. He was/is an optics physicist. One part of what he did, besides dunking a lens into some liquid to create a gradient, or something like that, was, before he retired in... I think 2022... identifying a certain part of the lens or stage in the process manually.
+
+I told him a neural network could probably do it, with enough training data. So I inquired. He didn't want to share, thought I would find it boring, but I told him "For my PhD." 
+
+Did I intend to do it for my PhD, identity patterns for his physics work with neural networks? No. But I was curious and thought maybe I could make some useful suggestions.
+
+So he described his method to me in detail, and left.
+
+It was cool.
+
+That same work week, Chenliang notifies me by Zoom that he wants me to join Niaz's lab, a Materials Science group that is trying to identify diffraction patterns using neural networks. Diffraction is a standard optics process, whereby light diffracts off of surfaces or through mediums.
+
+It was quite the synchronous timing, but at that point, I was used to synchronous timing, and just believed that the synchonicities must've had a point. So I gratefully joined Niaz's group for funding, even though it wasn't technically my choice.
+
 ### Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
+
+The below has implications on the universe's physics. Read at your own peril, but read in full if you do.
 
 #### Circumcision
 
@@ -1280,98 +1390,6 @@ The camping and kayacking trip didn't work. Tayler didn't want to talk about my 
 Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable I felt after finding her content, and she gave me no safe way to, except to try and process it with my friend Mohsen on a camping trip, and hope she'd let me without treating me like a bug, with her. 
 
 In the hospital, over the phone, I was able to just confront her (like, "Why'd you fuck him??" about her roommate), and that turned out to be fine. Note to self, easier said than done, and usually full of its own pitfalls: "release emotions right away," I would say, but that also doesn't work in the general case.
-
-### Future hair regrowths
-
-My pubic hair grew back in 2021 while doing a strict steak/salmon-only diet with some Paleo leniency — it was definitely still grown back while I was doing that diet in December, 2021 — and fell out gradually. 
-
-My eyelashes started growing back for the first time in summer, 2023, when I'd started doing the steak/salmon-only diet again, and my best friend returned into my life, and fell out shortly after I was terminated, at which time I also had gone more lenient on my steak/salmon-only diet, due to the combination of more stress (from that termination) and lacking an income. Those three eyelashes that had grown back one by one gradually up to that point, that summer, starting that summer, grew back for the first time ever in the 5 full years since losing all of my hair. Then each fell out, but I attribute them to my best friend, who returned that summer, and probably also the correlating steak/salmon-only diet that I'd resumed before his return, earlier in 2023, after the weather had already gotten warm. Though, besides steak/salmon during that period when my eyelashes started to grow back for the first time, I allowed myself organic tea on that one, as well. Then, when I was terminated by this wonderful university of mine that had cost me my hair in the first place, my newly miracle'd eyelashes fell out suddenly.
-
-However, adding this seems to undermine just how severe the injustice we're talking about is.
-
-The bullies at the University of Rochester's hospital and research institutions don't understand that they botched every action they took in their judgements, treatments, policies, decision-making, and (as will be shown, though hopefully it's apparent already) rulings, and did everything humanly possible, sometimes by blunder rather than on purpose, to take away and waste my dignity, money, social life, physical body, and work.
-
-### Intimacy healing
-
-Depression, anxiety, PTSD, and [touch starvation](https://youtu.be/4zJXr4jeP5w?si=bQCCeK4_Cxv1MbL1) might be treatable through intimacy.
-
-> [!WARNING]
-> 
-> In the hospital-provided housing that Sarah got after the hospitalization, I visited for Thanksgiving. Her neighbor made food, including pork chops and mashed potatoes, that we ate in her neighbor's unit. I brought yams I'd made previously before the invitation.
-> 
-> Pork is not a metaphor for sex. Yams is not a metaphor for boobs. Thanksgiving is a metaphor for how grateful I was for the good food.
->
-> She told me then that she'd had sex with the 50-something year old psychiatric ward janitor while hospitalized, in the psychiatric unit. They got into a relationship afterwards, and she'd broken up with him. 
->
-> Through the captivity and drugging of her with benzos, the University of Rochester's Strong Hospital facilitated that.
->
-> Benzos act like alcohol, and are incredibly personality-disinhibiting. They're even similar to GHB, also a GABA agonist, but which additionally acts on the GHB receptor. All three reduce consciousness, and predispose a horny person to making bad decisions, or good decisions based on a temporary need induced by confinement.
->
-> However, perhaps there is a better alternative for those needs, in (1) treating them, rather than drugs, and (2) in self-treating them, rather than janitors. No drug-captivity-induced date-accident needed.
->
-> But I'm sure she's thankful for your services (that's not sarcasm — hospital-provided outpatient housing is one of the most-medical things I've ever seen them do; I had no idea they did that).
-
-I propose a new branch of medicine called intimacy healing, one with an ontology like as follows: communications as a subset of intimacy healing, intimacy healing as a subset of medicine, with overlaps but distinction from sex work. 
-
-Independently, sex work should be legalized, regarded as a subset of fine art, formally and academically, but distinct from intimacy healing, and the branches of medicine and fine art can overlap.
-
-Radical idea, but that's the direction. Humans need each other. Relationships are the most fundamental part of life, more of a basic necessity than food, water, shelter, or drugs.
-
-Perhaps my alternative would've served better, and given her a spiritual, healthy way to resolve a human struggle that all of us share.
-
-### The artificial and synthetic
-
-I'm all for [#SexycareForAll](#comedic-aside-sexier-moments-during-chenliang-tenure), but that's not quite what I have to say.
-- And note, via humans.
-
-The use of drugs, porn, movies, TV shows, and technologies shouldn't be judged or shamed. 
-
-Many people are happy relying on those things, others appreciate the art.
-
-Big pharma companies find value in their mass proliferation re: drugs.
-
-And tech companies find value in their mass proliferation re: porn, fleshlights, dildos.
-
-I'm anti-prohibition. My message is only this: the best experiences of a person's life shouldn't be synthetic. Those experiences should be brought into the real world, for people who want or need them, where the experiences people need and want are available foremost in the real world, via people, sincerely, intimately, and via touch, no matter one's "social class." [Imagine all the people, living life in peace.](https://youtu.be/YkgkThdzX-8?si=YNzRr6gnKtG4jywG)
-
-And that must be understood as distinct from capitalistic drug-like fixes that people pay for.
-
-Intimacy healing is a step towards that, starting with medical institutions.
-
-### AI
-  
-AI is a field with a lot of ethics questions, and the [militaristic](https://www.politico.eu/article/robots-coming-ukraine-testing-ground-ai-artificial-intelligence-powered-combat-war-russia/), [survelliance](https://bigdatachina.csis.org/the-ai-surveillance-symbiosis-in-china/#:~:text=With%20regard%20to%20China%2C%20it,data%20acquired%20through%20government%20contracts.) uses out there, in combination with this paper factory progress and pressure to turn out papers, is a boding sign that those questions are being answered extraordinarily incorrectly by the people giving the grades.
-
-## Niaz Abdolrahim (okay, some not-tragedy)
-
-<p align="center">
-<a href="https://github.com/user-attachments/assets/e4288579-4f0b-4ac3-a8f2-ddbbf728128d">
- <picture>
-   <source width="58%" media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/9e2cf8f1-f20f-4506-9e53-c172dab68539">
-   <img width="58%" alt="Text changing depending on mode. Light: 'Light' Dark: 'Dark'" src="https://github.com/user-attachments/assets/e4288579-4f0b-4ac3-a8f2-ddbbf728128d">
-</picture>
-</a>
-</p>
-
-In my fourth year, I was assigned to also work in the Mechanical Engineering group that Niaz (who was a great PI) led. Then in my 6th year, it was still while working half-part there, with Niaz, Chenliang, and team, that Chenliang (who symbolically led the deep learning side of the work, with me leading the deep learning side of the work) called me into his office in the CS building where his lab meetings, including me (both my office and attendance to those meetings, as well), were held, towards which most of my 70-hour-per-week labor was going, to inform me that he didn't think I had enough papers (this was while he knew we were in the middle of a paper-review, a paper on which I had second-author, on which Chenliang, and according to Chenliang, Niaz, had previously offered me first-author — and I rejected — twice — out of fairness to the other PhD student — for a paper that got highly positive reviews), and due to that low number of publications, he would be deserting.
-
-The paper got accepted, after my termination notice and on the day before my last day as an employed student, in fact, synchronistically, a minute after I referenced it in the email I sent shown in the next ["Disproof"](3-Disproof.md#email-10302023) chapter.
-
-Chenliang put me on the Mechanical Engineering lab as the source of my funding, on a project which I led, which was funded by two pretty-major grants that I helped write, which included my ideas, which somehow, by Chenliang's and very-much-not-Niaz's decision, wouldn't fund me any longer.
-
-Niaz, not an "opposing view," and someone I really like, was my other Principle Investigator next to Chenliang. Oh but to be clear, I was still in Chenliang's lab and reporting to that lab as well every week. I was doing extreme amounts of work for both, the latter of which I haven't really started describing yet. 
-
-For Niaz's group, I did a lot of programming, data generation and pipeline-optimizing; much of the systems; idea invention and schematic designing; grant-idea-providing-and-writing-and-diagram-designing; and all of the model building and experiment running and plotting.
-
-In Chenliang's group, I was still trying to do my own research, which was pretty heavily bottlenecked. That's part of why I was practicing every discipline imaginable — from Wim Hof method freezing cold baths to Transcendental Meditation to yoga to strict steak/salmon-only diet to every ascetecism I could not-hope for — to achieve the [full scope](https://github.com/AGI-init/UnifiedML-legacy) of what I wanted to do for [both](https://github.com/AGI-init/XRDs).
-
-When Chenliang told me he couldn't be my advisor, I asked Niaz if she could be. She said the process of transferring to the mechanical engineering department formally wasn't that simple, that maybe she could contact the Dean, and that she sympathized sincerely. She also advised that I reach out to the CARE Network, something I at first took some mild offense to, because I messaged her on Slack about the key specifics of the medical institution hair and benzo trauma, and she clarified, no, she meant reaching out to them for a lawyer. I appreciated that. I'm grateful Chenliang forced me on that work because of Niaz. But I did a lot for them in the Mechanical Engineering department, concurrent with my studies in AI separately in his lab, and I had no choice because that project's grants, were funding me, and I helped write two of their big ones (endowing the pretty-small group with upwards of a million dollars), with their names as authors and me uncredited. I did a lot of engineering and data work for them that was independent to my research, that ordinarily would get paid a 6-figure salary for, while I have never been paid more than $15/hr in my life, and the termination left me with tons of student debt.
-
-So you see, because my family was poor, my student debt (for the University of Rochester) was subsidized for as long as I was a student. So when I was terminated, that interest started accumulating, and I had/have to pay them/the lenders the large sum of money (in the above-the-Biden-loan-cancellation ranges, even the Pell grant one I would've gotten). So literally speaking, financially, I was "indebted for their services" for terminating me, which I had to swallow. This is the same University of Rochester I've been describing for multiple chapters now.
-
-Makes me want to go #NotEnoughPapers, for the many thousands of dollars reverse-severance they gave me as gratitude.
-
-However, that lab is the least of the work I did ([here](5-Early-work-in-program.md)/[here](6-Indebted.md)/[here](https://github.com/AGI-init/UnifiedML-legacy)/[here](https://github.com/AGI-init/XRDs)/[here](https://github.com/slerman12/Builder)/[here](https://github.com/AGI-init/Tributaries)/[here](https://docs.google.com/presentation/d/1ZQFeiOKSU2teVGg5EHlgREAi8pJY_Mr1CJ3H2pfFBfI/edit?usp=sharing)), at sometimes slave wage by force, with PhD requirements that were usually uniquely put on me, from the same institution that mutilated the hair and youth from my body and face, and neurochemically gassed my brain, then terminated me and scapegoated me for their 6 years of atrocities, negligences, and greed.
 
 ### Chris Kanan
 
