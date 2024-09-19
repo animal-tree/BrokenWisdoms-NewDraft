@@ -1165,7 +1165,7 @@ It was cool.
 
 That same work week, Chenliang notifies me by Zoom that he wants me to join Niaz's lab, a Materials Science group that is trying to identify diffraction patterns using neural networks. Diffraction is a standard optics process, whereby light diffracts off of surfaces or through mediums.
 
-It was quite the synchronous timing, but at that point, I was used to synchronous timing, and just believed that the synchonicities must've had a point. So I gratefully joined Niaz's group for funding, even though it wasn't technically my choice.
+It was quite the synchronous timing, but at that point, I was used to synchronous timing, and just believed that the synchonicities must've had a point. So I gratefully joined Niaz's group for funding, thinking it was purposed, even though it wasn't technically my choice.
 
 ### Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
 
@@ -1174,7 +1174,7 @@ It was quite the synchronous timing, but at that point, I was used to synchronou
 
 #### Circumcision
 
-> [!WARNING]
+> [!NOTE]
 > On Christmas, 2018, the crisis I went through included many more details than the ones I specified at the start of this book.
 
 I had good evidence that what was happening to me in meditation and yogic states wasn't delusion. On top of that, I had a rational understanding of how a possible physics-based universe-intelligence like Tao could be involved in those senses. I'll refer to those yogic "grace" guidances as "Tao"/"God."  The I Ching's answers, among other synchronicities, made the plausibility even higher, and given a sufficiently unwanted threat from those forces, the probability would be high enough to terrify me.
