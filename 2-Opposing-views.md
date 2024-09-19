@@ -366,7 +366,11 @@ It was the first time I grew out my beard and I did so out of a delightful intui
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, as described at the end of [Part 1](#part-1), I recurrently had the scariest (sleeping-)nightmare of my life, that night. 
 -->
 
-I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I had the scariest (sleeping-)nightmare of my life, as described in [Part 1](#part-1), omen 3, as well as the two weeks [complaining in Israel](#jeremiah). 
+<!--
+I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I had the scariest (sleeping-)nightmare of my life, as described in [Part 1](#part-1).
+-->
+
+I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I recurrently had the scariest sleeping-nightmare of my life, as described in [Part 1](#part-1). That was uncanny omen 3, as well as the two weeks [complaining in Israel](#jeremiah). 
 
 <!--
 Just before that, yet another premonition: the first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
