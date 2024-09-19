@@ -693,13 +693,15 @@ And after all of this, [literally nothing was cured](https://www.reddit.com/r/ku
 
 The trauma I went through during my psychosis (which the psychiatrists didn't even know about) doesn't compare to the >year of benzo neurochemical torture.
 
+### In the middle of it
+
 #### Matt-Damon-potatoes-on-Mars
 
 It was from my office, I remember, during benzo cognitive decline, in the Spring 2019 semester, that I taught Henry "sequence-to-sequence attention" (even as I was working on innovations to MHDPA, now suffering due to grad-level classes, TAship, impending area exam, and not to mention brain damage) and being in a state of misery that I couldn't convey.
 
 I spent every day of that semester writing a little bit towards my area exam paper. To pass the grad-level classes after the hospitalizations and amid the decreasing cognition, I asked another PhD student for help on some difficult course material, and visited a professor at his office hours several times. I scored straight As. This took spirit and luck, e.g., Matt-Damon-potatoes-on-Mars kind of human spirit that should not be underestimated, amid brain damage and torture.
 
-### Area exam
+#### Area exam
 
 I passed my area exam, shortly after this Spring 2019 semester, "with flying colors" according to Henry.
 
