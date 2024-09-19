@@ -384,7 +384,7 @@ It was in that house when Aetna cut me off from Dupilumab and my hair pretty rap
 
 ### 2016 - 2017
 
-The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests, Henry accepted me into his PhD group as a doctoral student. 
+The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests in a theater group, Henry accepted me into his PhD group as a doctoral student. 
 
 ## Henry Kautz
 
