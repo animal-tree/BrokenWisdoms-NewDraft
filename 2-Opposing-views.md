@@ -1273,7 +1273,9 @@ My Facebook bio (where I met Tayler) was "trying to understand consciousness mat
 
 While Tayler and I were still messaging, before the Kundalini physical sensations and hospitalization, and after some time without the Kundalini physical sensations, I described how I theorized TM might work to a also-skeptical PhD student, my friend Mohsen, who'd actually visited me in the house on May St. previously and met "Batman" once, but on a hiking/camping/kayacking/hotel trip much later, late-Tayler summer, in the Adirondacks and Niagra Falls, that it had something to do with the distribution of processing systems in the brain. For example: attenuating to a mantra, reduces other area attention activity such that unconscious thinking processes can be allocated. However, while still in the house on May St., I had a different philosophy, involving my physical body, as well as associative and long-term memory — one that I would say is more accurate.
 
-The camping and kayacking trip didn't work. Tayler didn't want to talk about my feelings. She got extremely offended really quickly whenever I tried to broach my emotions at my own pace in my slow, analytical way. Finding the way to express those things under pressure and risk of her sudden-180 rejections/bullying ("Alright lol") was impossible.
+The camping and kayacking trip didn't work. Tayler didn't want to talk about my feelings. She got extremely offended really quickly whenever I tried to broach my emotions at my own pace in my slow, analytical way. Finding the way to express those things under pressure and risk of her sudden-180 rejections/bullying ("Alright lol") was impossible. 
+
+Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable I felt after finding her content, and she gave me no safe way to. 
 
 ## Future hair regrowths
 
