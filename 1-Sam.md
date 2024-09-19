@@ -80,25 +80,26 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Geriatric unit hospitalization
         - Kids
           - Mobi
-      - Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
-        - Circumcision
-        - Baptism
-          - Mom alive
-        - Precognition
-          - Volyoda vision, precogniton, mom-psychosis, death
-          - Looney tailored scream
-        - Hospital
-        - Swallowing my tongue
-          - Resisting Kundalini rising
-          - Interpretation
-        - Resurrection
-        - Jealousy
-        - Coping with jealousy
         - Future hair regrowths
         - Intimacy healing
         - The artificial and synthetic
         - AI
       - Niaz Abdolrahim (okay, some more not-tragedy)
+        - Uncle Slava
+        - Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
+          - Circumcision
+          - Baptism
+            - Mom alive
+          - Precognition
+            - Volyoda vision, precogniton, mom-psychosis, death
+            - Looney tailored scream
+          - Hospital
+          - Swallowing my tongue
+            - Resisting Kundalini rising
+            - Interpretation
+          - Resurrection
+          - Jealousy
+          - Coping with jealousy
       - Chris Kanan
       - Future hair losses
       - Tom Howard
