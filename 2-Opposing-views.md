@@ -443,6 +443,8 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > Those were the earliest days of Golden Age Peak TV (2011 - 2013), just when the shows were at their best, and yet no one had quite yet noticed, except me... I was rabid. Buffy started in the 90s, but my rabid-ness went to the past as well.
 >
+> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious.
+>
 > It wasn't until my senior year, that I met anybody who liked Buffy the Vampire Slayer, these two kids who went to a private school, who I met because I saw one of them had a totally different shared interest from a comment he made on Facebook, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party where I met other kids who went to his school, including the other one, one of his friends who walked right up to me with a big smile and was so enthusiastic that I shared her love of Buffy. We loved it — an unusual amount — the meeting was "serendipitious." But at that school, a private wealthier school, those tastes seemed surprisingly more appreciated, and I found in college, while still usually rare to meet other fans, the taste was more commonly appreciated, too, and the two best friends I made after befriending these two who I wish there was time to have been my best friends were also remarkably serendipitous.
 >
 > Two of the first friends I made in college, by extreme coincidence, specifically loved Buffy as much as I did and were the girls in my neighboring dorm, one of whom had messaged me about Joss Whedon specifically, all of us assigned to those rooms entirely by the university's random selection. We'd become best friends. I pretty much lived in their dorm. It was extremely coincidental. The other dorm near ours also housed a girl who liked Buffy a lot, by chance. There were more people neighboring me in that Freshman hall who liked Buffy a lot, than perhaps all the people I'd meet in college thereafter who did so too, and all those I met previous up to then.
@@ -462,8 +464,6 @@ After the house on May St., I was coming up with and seeking a method that could
 > Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.
 >
 > And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others didn't appreciate quite that obsessively, that much (the show helmed by the guy who would go on to... also helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/)).
->
-> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious.
 
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
 
