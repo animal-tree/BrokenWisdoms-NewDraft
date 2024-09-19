@@ -1163,7 +1163,7 @@ So he described his method to me in detail, and left.
 
 It was cool.
 
-That same work week, Chenliang notifies me by Zoom that he wants me to join Niaz's lab, a Materials Science group that is trying to identify diffraction patterns using neural networks. Diffraction is a standard optics process, whereby light diffracts off of surfaces, through their gaps.
+That same work week, Chenliang notifies me by Zoom that he wants me to join Niaz's lab, a Materials Science group that is trying to identify diffraction patterns using neural networks. Diffraction is a standard optics process, whereby light spreads due to obstacles or gaps in surfaces.
 
 It was quite the synchronous timing, but at that point, I was used to synchronous timing, and just believed that the synchonicities must've had a point. So I gratefully joined Niaz's group for funding, in addition to teh Computer Vision lab, thinking it was purposed, even though it wasn't technically my choice.
 
