@@ -578,7 +578,7 @@ Perhaps this is what I was supposed to learn from the betrayal in my mind’s ne
 
 $^\text{\small\color{green}1.:}$ <sup>The I Ching gave this answer exactly the morning of the day before the Christmas Eve one that I left my apartment.</sup> 
 
-#### Discharge from RGH
+#### Discharged from RGH
 
 I also gave the "for pleasure" answer to the psychiatrist, who diagnosed me with a bipolar manic episode and catatonia.
 
