@@ -73,7 +73,13 @@ Pets weren't allowed, but that's okay, because there was a [semi-adopted stray w
 
 Months before I moved out, I became the admin/moderator of the [university Facebook housing page](https://www.facebook.com/groups/1112684565415024/) by chance, because the actual admin posted he was looking for a student to moderate the page for him, and I responded that I could do it. My landlord didn't know (and probably still doesn't) that I'm the effective-admin/moderator of that page. Also, since then, I've messaged the manager/admin of that group multiple times to give the moderation to someone else or moderate it himself and he hasn’t replied, and doesn't appear to use Facebook, so hereforth I'm permitting myself to call myself the admin. I’m glad to moderate, but not super good at keeping up to date with it. So, after there was no chance left of getting to keep the place to just myself and friend longer, I ended up finding University of Rochester grad students to fill all 4 bedrooms of the house, and all 4 bedrooms of the neighboring house, also belonging to the landlord — I think "semi-detached home" is what it's called — and, thanks to the ad I ended up posting ([here it is](https://github.com/user-attachments/assets/dbe5ceff-3b06-4582-97fb-c13c30d00564)), I redirected inquiries to my landlord's email and my landlord's email flooded with other PhD students looking to fill that house, including one of the ones who’d originally wanted and planned to who I'd notified (he moved into the attached one). I ended up adding my landlord to that page, where, technically I'm not supposed to allow landlords, only students. Sorry for this phrasing, but the landlord’s house is now "never lacking" in interested grad students looking to rent from him. In fact, lucky for him, the neighboring commercial building is now [a herbal apothecary](https://www.democratandchronicle.com/story/news/2019/09/19/little-apothecary-becomes-little-herbary-south-ave-rochester-ny/2365775001/), since it was abandoned when I lived there (due to, if I recall correctly, a murder, though I didn't know that moving in).
 
-I also grew out a full beard (except a really small patch probably from a lifetime of topical eczema creams, as my pediatrician told me was happening in high school or college) and full mustache in those first months I lived in that May St. house, based on some intuition. [Here's a picture with my family at that house from my 22nd birthday](https://github.com/user-attachments/assets/2d1d366e-14bd-49cd-9a58-dca108e9a144), not too long after I started to grow it out. My best friend [visited me](https://www.facebook.com/share/p/c7m83bHR5v1mP4p4/) on December 15th, 2017 at that house and encouraged me to shave it (just before we went to a rave that day, the other friend's who would later move in with me, coincidentally), some months before Aetna cut me off from the prescription to Dupilumab, but it was the first time I ever grew out my facial hair.
+I also grew out a full beard and full mustache mostly in those first months I lived in that May St. house, based on some intuition. [Here's a picture with my family at that house from my 22nd birthday](https://github.com/user-attachments/assets/2d1d366e-14bd-49cd-9a58-dca108e9a144), not too long after I started to grow it out. My best friend [visited me](https://www.facebook.com/share/p/c7m83bHR5v1mP4p4/) on December 15th, 2017 at that house and encouraged me to shave it (just before we went to a rave that day, the other friend's who would later move in with me, coincidentally), some months before Aetna cut me off from the prescription to Dupilumab, but it was the first time I ever grew out my facial hair.
+
+<!--
+full beard (except a really small patch probably from a lifetime of topical eczema creams, as my pediatrician told me was happening in high school or college) and full mustache
+
+The beard had a really small bald patch, [not very unnoticable](https://github.com/user-attachments/assets/2d1d366e-14bd-49cd-9a58-dca108e9a144), prior to cessation from Dupilumab, the entire time it was growing out. My arms and legs were always very smooth, and my pediatrician, back when I was still seeing him in my Freshman year of college, diagnosed that lack of hair growth at parts of my body as being probably due to the use of prescribed topical creams for eczema on those parts of my body. The very corner of my eyebrow was also very slightly receding in college. My chin and forehead were two areas where I got eczema and had applied those creams sometimes in high school and college. The entirety of my head, central eyebrows, eyelashes, armpits, and pubic hair weren't.
+-->
 
 I was working really hard in that house, developing my long-term memory research ideas and implementing the code for it there, meditating every day while practicing strict dietary (Paleo and organic) disciplines, practicing many asceticisms including not watching movies and TV shows, no unnatural lights after 8 PM except candlelight and always going to bed by 10 or 11, reading philosophy books and academic works for entertainment, cooking all of my food fresh, cold rather than hot showers (e.g., Wim Hof method), while working on campus taking full semesters of grad-level classes, and at the University of Rochester's Medical Center, building neural models to predict the progression of Parkinson's disease, and that house is where I started to get my idea for how stochasticity in the universe's quantum mechanics could explain a mechanism for "God" or some intelligent power in nature, hypothetically.
 
@@ -85,18 +91,15 @@ In that house, somewhat before, and thereafter (continuing for years, mostly wit
 Later, after some time without that "Kundalini" sensation, I described how I theorized TM might work to another skeptical PhD student, my friend Mohsen, who'd actually visited me in that house and met "Batman" once, but on a hiking/camping/kayacking/hotel trip much later in the Adirondacks and Niagra Falls, that it had something to do with the distribution of processing systems in the brain. For example: attenuating to a mantra, reduces other area attention activity such that unconscious thinking processes can be allocated. However, while still in the house on May St., I had a different philosophy, involving my physical body, as well as associative and long-term memory —  but I can't remember what it was. I have notes in a small red journal (not a reference to Jung's "Red Book," but I was reading Jung at the time) [here](). To do: find journal and link photos
 -->
 
-<!--
-The beard had a really small bald patch similar to places on my body where my skin was very smooth that my pediatrician (who I was still seeing in my Freshman year of college) diagnosed while I was in college as probably due to the use of prescribed topical creams for eczema on those parts of my body. My chin is one of those areas where I got eczema and had applied those creams through high school and college. My head, eyebrows, eyelashes, armpits, and pubic hair weren't.
--->
-
 It was in that house when Aetna cut me off from Dupilumab and my hair started falling out.
 
 After that house, I moved in with my mom to our apartment, where I came up with my [MHDPA innovation paper](https://www.overleaf.com/read/qgmmzgsrctmg#6cd1b9) (the method underlying ChatGPT) in 2018, and it was in the middle of wrapping up that that I was hospitalized (no prior history). It was actually in the first hospitalization, at RGH, where I ran the successful experiments for that paper, since the hospital staff had allowed my mom to bring in my laptop. It was in the second hospital, at the University of Rochester’s Strong Hospital, where I described relational reasoning to my brother-in-law and showed that paper to my fellow inpatient, Sarah (real name used with permission).
 
+<!--
 ## Psychosis, and Rochester General Hospital (RGH)
 
 I won’t describe what happened yet.  Keep reading.
-
+-->
 ## Psychiatry at the University of Rochester's Strong Hospital
 
 I'm $5\text{'}5\text{'' } 110\text{lb}$.
@@ -290,7 +293,7 @@ He didn’t take money. He just said, "I couldn’t heal him. I can’t."
 
 The shaman somehow knew that we were immigrating, maybe Shafkad told him, somehow he knew, my mom didn’t know how.
 
-My grandma's sister, "Tsotya" Tsilia, and her son, my uncle Sasha, were the first to immigrate to America. My grandma, uncle, and mom applied for refugee status to immigrate as well. My grandparents and uncle’s family were approved, whereas my mom, sister, and I, weren’t. So my grandparents immigrated, and sent an invitation to my mom through the embassy. My mom had to fly with us to Moscow, in January, to do an interview at the American Embassy in Moscow to convince them that she was subjugated. 
+My grandma's sister, "Tsotya" Tsilia, and her son, my uncle Sasha, a mathematics professor at the Rochester Institute of Technology (RIT), were the first to immigrate to America. My grandma, uncle, and mom applied for refugee status to immigrate as well. My grandparents and uncle’s family were approved, whereas my mom, sister, and I, weren’t. So my grandparents immigrated, and sent an invitation to my mom through the embassy. My mom had to fly with us to Moscow, in January, to do an interview at the American Embassy in Moscow to convince them that she was subjugated. 
 
 "Your form said you have kids. Where are they?"
 
@@ -353,32 +356,35 @@ I hope Charles and his colleagues may find the above diagram (["5 Computational 
 
 But before we come to the conclusion that Charles is caught "red-handed," he was very supportive as my advisor; and he was left-handed, I recall, like my grandpa.
 
+### Uncanny beard premonition
+
+My grandpa actually gave me his razor, an electric razor. It was the first razor I ever had, that I used to shave in high school and all through college. I was right-handed; I'm sure my grandpa used his left hand; I'm sure Charles was startled when I started coming into the office at the Center for Health and Technology with the early traces of a beard, in the late summer of 2017.
+
+It was the first time I grew out my beard and I did so out of a delightful intuition I had during an acid trip while still in college, looking at myself in the mirror, seeing myself as a caveman, with a big natural smile shining on my face, and the apparent glow of long hair imagined around my face.
+
+I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night I had the scariest (sleeping-)nightmare of my life, described in [Part 1](#part-1). 
+
 <!--
-### Wicked "which study?" of the West
+Just before that, yet another premonition: the first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
 
-The influence of money in the benzo drug market, which is entirely independent to Charles, aside from the mechanism of neurodegeneration, however psychiatric, is extremely suspicious.
-
-> [!TIP]
-> ### And Erowid wasn't there, and "swim" wasn't there, and Badpill wasn't there…
->
-> There was a time when responsible drug users could read reports from other users on a website called Erowid and informed themselves through reading the experiences of others, as well as looking at the rankings, and different metrics that people voted on. There was, and still wouldn’t be a better research methodology, if Erowid still served that democratic function, for discovering the dangers of psychiatric (or recreational) drugs, reading such anecdotal reports (often really thorough), which professional psychiatrists [usually](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0285584) don’t place much weight in. Such a website is threatening to big pharma companies, for marketing reasons, if their drugs are [publicly ranked, or fall below](https://www.reddit.com/r/spirituality/comments/1c5jwbl/why_am_i_disconnected_from_your_social_realms/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button), for example the endangerment rankings of really-bad-for-branding drugs like heroin or, organic 100% agave blue reposado tequila.
->
-> Opioids, like OxyContin, are extremely similar to heroin, [negligibly distinct as chemicals](https://ohdetox.com/detox-blog/oxycodone-vs-heroin-which-is-worse/), just packaged into manufactured powder disks that, unlike heroin, can be branded with good marketing and a lot of lobbying by the pharma industry as being more medical.
->
-> The medical characterization difference between alcohol and benzos is not proportional to their actual health-endangerment difference, while no psychiatrist (a) prescribes alcohol, or (b) would think to prescribe alcohol in the same regularity and durations that benzos are commonly prescribed.
-> 
-> There needs to be a tasteful place (meaning, not Reddit, preferably not GitHub) where these issues can be posted about, independently run and strictly unaffiliated with big pharma lobbying forces, where experiences can be aggregated, and people can democratically vote, without pharma company bias, Rotten-Tomatoes-like metrics about different drugs/pharmaceuticals, with thorough reports that users add, that psychiatric *researchers*, if not psychiatrists themselves, should take just as seriously, if not more seriously, than the standard industry consensuses.
->
-> What happened to Erowid? Who killed Erowid? How long ago were the days of Erowid and "swim"? 80 years? Multiple centuries? 
->
-> I'm in my 20s. Is anybody else old enough to remember "swim" and those anonymizing user handles? People had to anonymize themselves to safely tell each other about their bad experiences. I was in a subreddit called [r/Badpill](https://www.reddit.com/r/BadPill/) during the benzo nightmare, a forum for pharmaceutical trauma and addiction recovery, and I’d written the most detailed description of my trauma with benzos there, my post was the top ranked for years, and had dozens of comments from different people that they suffered similar torturous, prolonged pain from benzos, and I found earlier in 2024 that, in that year, the entire subreddit was deleted. I had no more-detailed description anywhere. It was lost, forever, [not even in any historical archives](https://github.com/user-attachments/assets/7039b8f6-e822-4f65-8721-afe691e206ad) it might've gotten preserved by, that I had to find to try and look for it. I was so angry, how much of what I suffered was deleted from the time-stamped faces of memory, just like that, that I wanted to commit suicide. It was the only thorough expression of these traumas that I had and was able to make at the time, time-stamped and unquestionably sincere, and popular, that the prescribed benzos, coerced onto me in the hospital and extended against my will, did to me. I was going to kill myself, and coinciding with that, or perhaps because of, I started writing this book, the first terrible words that still expressed nothing, knowing no words could ever do justice really to what more than a year of that torture, mental and physical, swarming through me, without sleep, was like.
->
-> Perhaps independent to big pharma, but why was an entire pharmaceutical addiction/trauma recovery forum deleted/purged without warning or individual-user-private-archive for a user's own post? Doesn't Reddit think, maybe, some people had serious expressions they needed preservation of, rather than a unilateral purge of a *health forum* (I'm not talking about a political or social issues-charged forum; I'm talking about a *addiction/trauma recovery forum*). Ah, "transactions involving prohibited goods or services." I bet.
->
-> My post was the most popular there since 2019.
-
-Adding to the suspicion around benzos, there were even contradictions in recent studies from previous decades, on the same drugs: ["the Medical Research Council (MRC) in Britain agreed in 1982 that there should be large-scale studies to examine the long-term impact of benzodiazepines after research by a leading psychiatrist showed brain shrinkage in some patients similar to the effects of long-term alcohol abuse."](https://www.psychologytoday.com/intl/blog/side-effects/201011/pharmaceutical-scandal-in-britain-sheds-disturbing-new-light) The study was buried: ["The only problem with the MRC's response to such warnings about benzos? It appears to have sat for thirty years on the very documents that warned about the risks of brain shrinkage in patients taking them. Moreover, the MRC appears to have marked the documents 'closed until 2014,' despite their obvious importance to public health. [...] 'Members of Parliament and lawyers,' she continues, 'described the recently revealed documents as a scandal, and predicted they could lead the way to a class action costing millions.'"](https://www.psychologytoday.com/intl/blog/side-effects/201011/pharmaceutical-scandal-in-britain-sheds-disturbing-new-light)
+Even before then, in the birthright Israel trip, I had notably complained through the whole trip that my hair was too long. 
 -->
+
+<!--
+The first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
+
+Even before then, in the birthright Israel trip, I had notably complained through the whole trip that my hair was too long. 
+
+The beard I grew out for the first time just months before I lost my hair, based on an intense intuition to do so, was yet one more premonition of the hair loss.
+-->
+
+<!-- 
+It was in that house when Aetna cut me off from Dupilumab and my hair pretty rapidly fell out.
+-->
+
+### 2016 - 2017
+
+The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests, Henry accepted me into his PhD group as a doctoral student. 
 
 ## Henry Kautz
 
@@ -391,9 +397,11 @@ Adding to the suspicion around benzos, there were even contradictions in recent 
 </a>
 </p>
 
-The Parkinson's disease progression models I built at the Med Center as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests, he accepted me into his PhD group as a doctoral student.
-
 ### Fall, 2018 semester, and the Dead Marshes
+
+- I first injected Dupilumab summer, 2017
+- My first semester in the PhD program began in Fall, 2017, with Henry as advisor
+- I lived in the [House on May St.](#house-on-may-st) for about a year, when, in 2018, Aetna cut me off from Dupilumab and my hair rapidly fell out
 
 After the house on May St., it was from my mom's apartment (in 2018) during a video call with my advisor that I described that biologically-inspired neuron architecture [above](#benzodiazepine-benzos-mechanism-of-action), with the specifics in the [video](https://drive.google.com/file/d/1i5hS2iDVuo24PnGicvn5dIZYXUzDfPAl/view?usp=share_link) comparing it to the LSTM architecture.
 
@@ -401,9 +409,16 @@ I also presented a description of the LSTM cell, then layer, then network, then 
 
 Also in that 2018 Fall semester, Henry made me apply for the NSF GRFP, one of the most competetive fellowships in the world. I submitted a personal background and research plan that got [excellent reviews](https://github.com/user-attachments/assets/87ef2c97-c1d5-4333-9247-a0d28a689efb), with one of the reviewers writing, "This is exactly the type of high-risk, high-reward research that the NSF is looking for to support." I proposed my long-term episodic memory model, biological neuron, and relational reasoning via MHDPA to feed "relational concepts" into a long-term memory.
 
+As I worked on the NSF GRFP submission, I kept asking the I Ching for advice, in addition to Henry, Sri Pai, and Charles Venuto. The former tended to give the most consistent, helpful answers, and for most of the writing process, very positive and encouraging. By the "former," I mean the I Ching, but the three professors also were encouraging, read my submissions, looked at different drafts, and helped. Their opinions contradicted each other, especially on the choice between two versions of the research plan I wrote, where Henry and Sri, both Computer Science, preferred one, and Charles and someone my age I liked, and I, preferred the other. I ended up going with the one the CS professors preferred. It was more structured and rigorous-looking, but less natural, profound, and lacked as much of a deeper philosophical meaning.
+
+Towards the end of the submission, just when I was ready to submit my final versions, including that structured research plan that the CS professors liked, the I Ching's tone had gotten far more ominous in its answers, consistently, suddenly, no matter what I asked it, whether it was the choice between those versions of the research plan, or different edits I considered or came up with. Its predictions were all negative. I submitted what I had, since the deadline was that day, and the result ended up being a very unfortunate "honorable mention," wherein all of the reviews were excellent, except one "Good" that tilted the scale. The last's reasoning? I didn't have enough paper publications, as he'd "have expected" from someone with such an interesting submission. Otherwise, it was a good submission, but [without paper publications, he couldn't give me an "Excellent."](https://github.com/user-attachments/assets/87ef2c97-c1d5-4333-9247-a0d28a689efb)
+
 It was a lot of work, but concurrently, amid yet-other grad-level courses, I worked on my MHDPA innovation paper, as the semester project for the Semantic Parsing class. Neither Henry nor the professor had heard of MHDPA back then. Henry critiqued my use of the term "relational reasoning" to describe it, now the convention. Dan wrote that I wasn't clear on the math, and needed more equations. The amount of math I used fully described the method and was/is the convention.
 
-But a strong interest or fascination with MHDPA, in 2018, didn't come by accident. Today, people who've heard of MHDPA have heard of it because of transformers, like the kind that underpins ChatGPT. In 2018, even an NLP professor whose students worked with deep learning models, including sequence-to-sequence attention models, as Dan was, was unlikely to have heard of transformers, let alone MHDPA, and of course Henry for that matter, since his background was in symbolic AI, and included little, if any, deep learning experience, and it was notable enough that he was one of the tenured professors in the CS department who believed deep learning wasn't a fad.
+But a strong interest or fascination with MHDPA, in 2018, didn't come by accident. Today, people who've heard of MHDPA have heard of it because of transformers, like the kind that underpins ChatGPT. In 2018, even an NLP professor whose students worked with deep learning models, including sequence-to-sequence attention models, as Dan was, was unlikely to have heard of transformers, let alone MHDPA, and of course Henry for that matter, since his background was in symbolic AI, and included little, if any, deep learning experience.
+<!-- , and it was notable enough that he was one of the tenured professors in the CS department who believed deep learning wasn't a fad. -->
+
+After the house on May St., I was coming up with and seeking a method that could do relational reasoning in deep learning. That is how I found MHDPA so early, before it had much recognition or almost any application (besides some groups at DeepMind) in the field. I was coming up with my own concept of relationally-attending-to image-features, and researching to find if anything existed in line with those principles, and I found the other DeepMind applications in [reinforcement learning](https://arxiv.org/abs/1806.01830) and [RNN memory](https://arxiv.org/abs/1806.01822), respectively. I was coming up with those methods for use as "relational representations" in a long-term episodic memory, and later how to innovate MHDPA for that purpose, a consideration that led to the innovation I evaluated on a question-answering dataset for my Semantic Parsing semester project, which outperformed the baseline MHDPA. I submitted my [paper](https://www.overleaf.com/read/qgmmzgsrctmg#6cd1b9) to the next year's ICML conference. The reviewers hadn't heard of MHDPA, compared it to other preexisting attention mechanisms, and critiqued that I didn't have enough experiments. Of course, adding more experiments wouldn't have been too hard if the next tailwinds didn't happen.  
 
 > [!NOTE]
 > ### Buffy
@@ -418,13 +433,13 @@ But a strong interest or fascination with MHDPA, in 2018, didn't come by acciden
 >
 > Buffy appreciation, quite honestly in high school, was how I measured intelligence.
 >
-> It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 2 years in, and gave him my "Philosophy of Buffy" book as a gift. I had no idea he liked it. Apparently, he was "obsessed with it," which he added, "might be kind of weird."
+> It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 2 years in, and gave him my "Philosophy of Buffy" book as a gift. I had no idea he liked it. Apparently, he was "obsessed with it," which he added, is "kind of weird."
 >
 > But it wasn't.
 > 
 > Buffy was my favorite show all through high school and college, and probably still is today.
 >
-> Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure, and like Giles, Buffy's "Watcher," was my advisor/"Watcher." Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles in his manner and support.
+> Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.
 
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
 
@@ -432,19 +447,13 @@ That being said, and most CS students can relate to this: in college, most of wh
 
 I'm not trying to be mean to anybody. This is the truth. It's hard to express, because it implies that the world is bad, that people with authority are stupider than they're credited and esteem themselves, that they're not just stupid, but actually really, really, like really stupid, and in vast majority. THAT might make writing and reading this hard. It might make it hard to believe, if you haven't seen this for yourself, as a student. I'd say the same about the other PhD students though. I'd say this about every professor and PhD student who was in the CS department. Not personally, not that they're always stupid, but that, in general, they were. Undergrads maybe see grad students as knowing so much more, but those grad positions, and professorial, don't require intelligence to earn, usually. In most cases, actual intelligence, or anything actually novel, would get in the way.
 
-Most people get into those positions through natural memorization ability, or obsessive memorization, and then make some minor deviations from what was taught to them that they call research, and that combination of memorization and very-linear tinkering gets esteemed if they're able to write it up with formal academic jargon. That last part — jargon — is most of what academia beyond the memorization-stage requires. Even those professors who make a dent, often get there by luck, usually around a really simple idea well executed.
+Most people get into those positions through natural memorization ability, or obsessive memorization, and then make some minor deviations from what was taught to them that they call research, and that combination of memorization and very-linear tinkering gets esteemed if they're able to write it up in the standard academic jargon. That last part — jargon — is most of what academia beyond the memorization-stage requires. Even those professors who make a dent, often get there by luck, usually around a really simple idea well executed.
 
 In med school, the ability to memorize which prescriptions correspond to which diagnoses, and which diagnoses correspond to which symptoms, and which anatomical events correspond to which symptoms, is something ChatGPT-like AIs can pass [exceptionally](https://arxiv.org/abs/2404.18416), with [even better bedside manner](https://www.nature.com/articles/d41586-024-00099-4).
 
 <!--
 I'm not trying to be mean to anybody. This is the truth. It's hard to express, because it implies that the world is bad, that people with authority are stupider than they're credited and esteem themselves, that they're not just stupid, but actually really, really, like really stupid, and in vast majority. THAT might make writing and reading this hard. It might even make it hard to believe, if you haven't seen this for yourself, as a student. I'd say the same about the other PhD students though. I'd say this about every professor and PhD student who was in the CS department. Not personally, not that they're always stupid, but that, in general, they were. Undergrads maybe see grad students as knowing so much more, but those grad positions, and professorial, don't require intelligence to earn, so much as obsessive memorization of facts others taught you, and perhaps some ability to claim that one has woven something new from those facts. In most cases, actual intelligence, or aything actually novel, would get in the way.
 -->
-
-After the house on May St., I was coming up with and seeking a method that could do relational reasoning in deep learning. That is how I found MHDPA so early, before it had much recognition or almost any application (besides some groups at DeepMind) in the field. I was coming up with my own concept of relationally-attending-to image-features, and researching to find if anything existed in line with those principles, and I found the other DeepMind applications in [reinforcement learning](https://arxiv.org/abs/1806.01830) and [RNN memory](https://arxiv.org/abs/1806.01822), respectively. I was coming up with those methods for use as "relational representations" in a long-term episodic memory, and later how to innovate MHDPA for that purpose, a consideration that led to the innovation I evaluated on a question-answering dataset for my Semantic Parsing semester project, which outperformed the baseline MHDPA. I submitted my [paper](https://www.overleaf.com/read/qgmmzgsrctmg#6cd1b9) to the next year's ICML conference. The reviewers hadn't heard of MHDPA, compared it to other preexisting attention mechanisms, and critiqued that I didn't have enough experiments. Of course, adding more experiments wouldn't have been too hard if the next tailwinds didn't happen.  
-
-As I worked on the NSF GRFP submission, I kept asking the I Ching for advice, in addition to Henry, Sri Pai, and Charles Venuto. The former tended to give the most consistent, helpful answers, and for most of the writing process, very positive and encouraging. By the "former," I mean the I Ching, but the three professors also were encouraging, read my submissions, looked at different drafts, and helped. Their opinions contradicted each other, especially on the choice between two versions of the research plan I wrote, where Henry and Sri, both Computer Science, preferred one, and Charles and someone my age I liked, and I, preferred the other. I ended up going with the one the CS professors preferred. It was more structured and rigorous-looking, but less natural, profound, and lacked as much of a deeper philosophical meaning.
-
-Towards the end of the submission, just when I was ready to submit my final versions, including that structured research plan that the CS professors liked, the I Ching's tone had gotten far more ominous in its answers, consistently, suddenly, no matter what I asked it, whether it was the choice between those versions of the research plan, or different edits I considered or came up with. Its predictions were all negative. I submitted what I had, since the deadline was that day, and the result ended up being a very unfortunate "honorable mention," wherein all of the reviews were excellent, except one "Good" that tilted the scale. The last's reasoning? I didn't have enough paper publications, as he'd "have expected" from someone with such an interesting submission. Otherwise, it was a good submission, but [without paper publications, he couldn't give me an "Excellent."](https://github.com/user-attachments/assets/87ef2c97-c1d5-4333-9247-a0d28a689efb)
 
 I went to a conference that year, NeurIPS, 2018, in Montreal. At the time it was called "NIPS, 2018." I met the DeepMind researcher Ryan Faulkner, who co-authored the [RNN memory](https://arxiv.org/abs/1806.01822) paper, that innovated on the RNN cell by applying internally the MHDPA method, who was so impressed with me that he invited me to lunch, and during lunch, as we were talking, he said he would recommend me to a position at DeepMind if I applied, back in 2018. 
 
@@ -456,7 +465,7 @@ I was wearing a hat all through the conference, to cover up my baldness, that I 
 
 When I returned, my work-based isolation deepened, as I was getting ready to submit my MHDPA innovation paper, coinciding with my first-ever hospitalization.
 
-This period was an extremely isolated time of work and esoteric in-the-weeds revelation. Besides stacks of printed academic papers, I was reading The Lord of the Rings, and there was one chapter that I read precisely in this narrow time span, "The Passage of the Marshes," that resonated for its eerie imagery. 
+This period was an extremely isolated time of work and esoteric in-the-weeds revelation. Besides stacks of printed academic papers, I was reading The Lord of the Rings, and there was one chapter that I read precisely in this narrow time span after I returned from Montreal, "The Passage of the Marshes," that resonated for its eerie imagery. 
 
 Frodo and Sam are being led by Gollum through the Dead Marshes. It's an eerie chapter, as Gollum's world seems to be the ruling one now, and Frodo and Sam are navigating at his back through the boggy peril.
 
@@ -464,7 +473,7 @@ I was going deeper and deeper into a psychotic state, both of (a) brilliant awar
 
 <!-- One day, that state found me literally in the bogs. -->
 
-### Crisis
+### Crisis, and Rochester General Hospital (RGH)
 
 It was literally a wind that pushed me into the woods. 
 
@@ -486,8 +495,6 @@ An ambulance found me, wet with brook water, nearly hypothermic. The only answer
 
 > [!NOTE]
 > This was about 5 - 8 months after the hair loss. No prior history of psychosis (not even of mania).
-
-### Psychosis, and Rochester General Hospital (RGH)
 
 #### Christmas, 2018
 
@@ -551,7 +558,7 @@ Perhaps this is what I was supposed to learn from the betrayal in my mind’s ne
 > [!NOTE]
 > The brook-jumping "baptism" could be interpreted as spiritual birth/rebirth, the throat sensations and tongue swallowing perhaps as Kundalini "rising," characterized in Hinduism as "spiritual awakening." Others describe similar phenomena independently, in particular in Hindu tradition, where [psychosis-type symptoms are indeed a well known epiphenomenon of Kundalini awakening.](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9460011/) The "yogic grace guidances," I'd interpreted, since the House on May St., as Tao.
 
-### Discharge from RGH
+#### Discharge from RGH
 
 I also gave the "for pleasure" answer to the psychiatrist, who diagnosed me with a bipolar manic episode and catatonia.
 
@@ -605,15 +612,17 @@ In my second hospitalization, the environment was much better than RGH's. I made
 
 #### Sarah
 
+I showed my MHDPA innovation paper to Sarah. She was amazed that she could read it since usually, she said, that kind of stuff isn't readable, and brought up a synchronicity. Her mom was a writer who had a published short story in a Stephen King anthology, a writer of horror. I was indeed in a hospitalization that was like a pretty good short story in an otherwise Stephen King anthology/horror. 
+
 Sarah’s sister’s name is "Kundalini Grace." I hadn’t heard of "Kundalini" until after I had those visceral, physical sensations in the House on May St. Then I looked up those sensations I was experiencing and found, for the first time, not having heard the word or of those movements and sensations before, the term "Kundalini," made more credible to me by the philosophy’s appreciation by the depth psychologist Carl Jung, who I was reading at the time, and whose views, very distinct from Freud's, on the existence of a subconscious, and its mystical-transcendent connection, helped explain some of what I was witnessing. 
 
 Sarah Young’s last name is "Jung," she hadn't heard of Carl Jung, she and I kept observing synchronicities while we were there, and she kept a synchronicity list. To me, no synchronicities happened yet that were bigger than just the uncanny precision and specificity of the I Ching’s answers. However, I was still seeing some unambiguous synchronicities, as well as not seeing many others, including that the word "synchronicity" was actually coined by Jung, and now I was remarking on them  together with one Sarah "Jung." But there were more I hadn't seen, and more, much bigger, that would come.
 
 The House on May St., in retrospect was one big synchronicity. I got the Facebook student housing page moderatorship just before I had to move out, and was able to deliver on my promise to fill my landlord’s house (and houses) with grad students. Not to mention, the house itself. Having that whole house, pretty much to myself, a beautiful antique house, for relatively pennies, the same house I had my AI and physics revelations — "luck" seems to forget a lot of context.
 
-So the word "synchronicity" was already familiar, as was Jung, as was Kundalini, as was Grace, by the time Sarah and I met in the hospital. 
+<!-- The first day I injected Dupilumab, that night I had the scariest sleeping-nightmare of my life. -->
 
-I showed my MHDPA innovation paper to Sarah. She was amazed that she could read it since usually, she said, that kind of stuff isn't readable, and brought up one more synchronicity. Her mom was a writer who had a published short story in a Stephen King anthology, a writer of horror. I was indeed in a hospitalization that was like a pretty good short story in an otherwise Stephen King anthology/horror. 
+So the word "synchronicity" was already familiar, as was Jung, as was Kundalini, as was Grace, by the time Sarah and I met in the hospital. 
 
 <!--
 #### Tin Man
