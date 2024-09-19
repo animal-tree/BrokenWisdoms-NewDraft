@@ -1169,7 +1169,8 @@ It was quite the synchronous timing, but at that point, I was used to synchronou
 
 ### Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
 
-The below has implications on the universe's physics. Read at your own peril, but read in full if you do.
+> [!WARNING]
+> The below has implications on the universe's physics. Read at your own peril, but read in full if you do.
 
 #### Circumcision
 
