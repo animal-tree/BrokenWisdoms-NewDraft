@@ -372,6 +372,10 @@ I didn't risk to grow it out in college, but was toying with the idea. Independe
 
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I recurrently had the scariest sleeping-nightmare of my life, as described in [Part 1](#part-1). That was uncanny omen 3, as well as the two weeks [complaining in Israel](#jeremiah). 
 
+Never had a nightmare like that, all night, before or after.
+
+Just happened to grow out my facial hair right before all my hair was purged.
+
 <!--
 Just before that, yet another premonition: the first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
 
