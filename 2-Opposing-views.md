@@ -1277,6 +1277,8 @@ The camping and kayacking trip didn't work. Tayler didn't want to talk about my 
 
 Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable I felt after finding her content, and she gave me no safe way to, except to try and process it with my friend Mohsen on a camping trip, and hope she'd let me without treating me like a bug, with her. 
 
+In the hospital, over the phone, I was able to just confront her about (like, "Why'd you fuck him??" about her roommate), and that turned out to be fine. Note to self, easier said than done, and usually full of its own pitfalls: release emotions right away.
+
 ## Future hair regrowths
 
 My pubic hair grew back in 2021 while doing a strict steak/salmon-only diet with some Paleo leniency — it was definitely still grown back while I was doing that diet in December, 2021 — and fell out gradually. 
