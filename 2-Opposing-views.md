@@ -631,7 +631,7 @@ I remember trying CBD oil or L-theanine to try to sleep. Latter didn't work — 
 
 #### Flying colors
 
-The first psychiatrist and I walked together in the hall and he thought I was bright. The social lubricant of benzos gave me a visibly colorful brilliance that I think he reacted to as authoritative, about my knowledge of benzos and intelligence. Let's call this luminescence "flying colors." He said I'd be weaned off before the discharge, and that was the schedule. I was able to articulate colorfully to him and the nurses that I wanted to be weaned off from the drugs before discharge. He reassured, I would be weaned off before discharge.
+The first psychiatrist and I walked together in the hall and he thought I was bright. The social lubricant of benzos gave me a visibly colorful brilliance that I think he reacted to as authoritative, about my knowledge of benzos and intelligence. Let's call this luminescence "flying colors," a term I'm borrowing from my advisor, Henry. The first psychiatrist said I'd be weaned off before the discharge, and that was the schedule. I was able to articulate colorfully to him and the nurses that I wanted to be weaned off from the drugs before discharge. He reassured, I would be weaned off before discharge.
 
 The second psychiatrist, an Asian woman, looked stern and astute, came in on the momentum of her previous post, and without much thought just changed the schedule. She was standing next to the first psychiatrist, who hesitantly, self-doubtingly told her that he'd planned to taper me off before the discharge since I was worried, but she was dismissive, about the original plan and our preferances. She said the tapering schedule was too fast and the outpatient doctor, the psychiatrist after the hospitalization, would wean me off, but this time, she gave the reassurance, that I'd be tapered right after discharge.
 
@@ -701,7 +701,7 @@ I spent every day of that semester writing a little bit towards my area exam pap
 
 ### Area exam
 
-I passed my area exam, at the end of this semester, "with flying colors" according to Henry, a term I've been herein borrowing from him, though that's not how he meant it.
+I passed my area exam, at the end of this semester, "with flying colors" according to Henry.
 
 My advisor, Henry, didn't think deep learning was a fad, and had a sense of intuition about ideas like the biologically-inspired neuron in the diagram [above](#benzodiazepine-benzos-mechanism-of-action) though not always of involved ideas, like the use of attention mechanisms (e.g., MHDPA). My next advisor, my machine vision professor from my first year Chenliang Xu, technically wasn't in the room during the area exam, because he was answering the Skype call from China. He's the only person in the meeting who asked elaboration on how I planned to do "relational representations" for vision with image features from a CNN, since he didn't know what MHDPA was (neither did my NLP professor, who also did and oversaw work in deep learning, from the semester just before my hospitalization) and I went back to slide 11 and re-described MHDPA to all of them again, and the fact that Chenliang was the only one of them who showed interest in the method that most revolutionized the next years of their fields, is meaningful since he became my later advisor.  
 
