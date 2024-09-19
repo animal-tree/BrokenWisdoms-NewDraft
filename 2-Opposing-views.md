@@ -451,7 +451,7 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.
 >
-> And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others didn't appreciate quite that obsessively, that much (the show helmed by the guy who would go on to... also helm something that was probably the beginning of the breakdown of civilization).
+> And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others didn't appreciate quite that obsessively, that much (the show helmed by the guy who would go on to... also helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/)).
 
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
 
