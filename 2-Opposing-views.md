@@ -356,7 +356,7 @@ I hope Charles and his colleagues may find the above diagram (["5 Computational 
 
 But before we come to the conclusion that Charles is caught "red-handed," he was very supportive as my advisor; and he was left-handed, I recall, like my grandpa.
 
-### Uncanny beard premonition
+### Uncanny beard premonitions
 
 My grandpa actually gave me his razor, an electric razor. It was the first razor I ever had, that I used to shave in high school and all through college. I was right-handed; I'm sure my grandpa used his left hand; I'm sure Charles was startled when I started coming into the office at the Center for Health and Technology with the early traces of a beard, in the late summer of 2017.
 
