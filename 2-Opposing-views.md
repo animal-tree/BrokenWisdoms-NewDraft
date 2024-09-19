@@ -564,7 +564,7 @@ Perhaps this is what I was supposed to learn from the betrayal in my mind’s ne
 > [!NOTE]
 > The brook-jumping "baptism" could be interpreted as spiritual birth/rebirth, the throat sensations and tongue swallowing perhaps as Kundalini "rising," characterized in Hinduism as "spiritual awakening." Others describe similar phenomena independently, in particular in Hindu tradition, where [psychosis-type symptoms are indeed a well known epiphenomenon of Kundalini awakening.](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9460011/) The "yogic grace guidances," I'd interpreted, since the House on May St., as Tao.
 
-$^\text{\small\color{green}1.:}$ <sup>The I Ching gave this answer exactly the morning of the day before the Christmas Eve one I left my apartment.</sup> 
+$^\text{\small\color{green}1.:}$ <sup>The I Ching gave this answer exactly the morning of the day before the Christmas Eve one that I left my apartment.</sup> 
 
 #### Discharge from RGH
 
