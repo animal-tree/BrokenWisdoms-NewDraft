@@ -435,7 +435,7 @@ After the house on May St., I was coming up with and seeking a method that could
 > [!NOTE]
 > ### Buffy
 >
-> In high school, I loved Lost, and Better Off Ted, and at some point Reaper, a show no one's heard of. But my favorite-favorite was Buffy the Vampire Slayer, which was available for streaming on Netflix. I was obsessed (as well as with ["Dr. Horrible's Sing-Along Blog"](https://youtu.be/Of9kHpCv1ts?si=FPBQagGV-MX0BOK4)).
+> In high school, I loved Lost, and Community, and Better Off Ted, and at some point Reaper, a show no one's heard of. But my favorite-favorite was Buffy the Vampire Slayer, which was available for streaming on Netflix. I was obsessed (as well as with ["Dr. Horrible's Sing-Along Blog"](https://youtu.be/Of9kHpCv1ts?si=FPBQagGV-MX0BOK4)).
 >
 > Almost nobody heard of it at my high school. 
 >
