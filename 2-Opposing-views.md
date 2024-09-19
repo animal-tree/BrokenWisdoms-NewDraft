@@ -443,7 +443,7 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > Those were the earliest days of Golden Age Peak TV (2011 - 2013), just when the shows were at their best, and yet no one had quite yet noticed, except me... I was rabid. Buffy started in the 90s, but my rabid-ness went to the past as well.
 >
-> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious.
+> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious, mostly because of Firefly.
 >
 > It wasn't until my senior year, that I met anybody who liked Buffy the Vampire Slayer, these two kids who went to a private school, who I met because I saw one of them had a totally different shared interest from a comment he made on Facebook, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party where I met other kids who went to his school, including the other one, one of his friends who walked right up to me with a big smile and was so enthusiastic that I shared her love of Buffy. We loved it — an unusual amount — the meeting was "serendipitious." But at that school, a private wealthier school, those tastes seemed surprisingly more appreciated, and I found in college, while still usually rare to meet other fans, the taste was more commonly appreciated, too, and the two best friends I made after befriending these two who I wish there was time to have been my best friends were also remarkably serendipitous.
 >
