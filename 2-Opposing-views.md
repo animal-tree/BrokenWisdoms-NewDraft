@@ -1201,7 +1201,7 @@ Then "Tao"/"God" told me it/He was going to kill my mom if I didn’t go somewhe
 So I stayed in the woods in the freezing snow all day and night; "Tao"/"God" told me I had to stay there for a week; "Tao"/"God" contradictorily told me that my mom was dead, or dying, or might die.
 
 > [!WARNING]
-> As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband to New Orleans. 
+> As I was doing this, somebody named Tayler, who formerly lived in Texas, was being kidnapped by her bald Jewish husband of one year to New Orleans. 
 
 #### Baptism
 
@@ -1311,7 +1311,7 @@ Nobody, not even my mom, was aware of the "circumcision" and "stick" details unt
 <!-- RGH discharged me not much more than one week after admission, with diagnoses "bipolar mania," "catatonia." -->
 
 > [!WARNING]
-> As this was happening, on the same Christmas, 2018 day, somebody named Tayler was being sexually assaulted by her bald Jewish husband who had kidnapped her to New Orleans. 
+> As this was happening, on the same Christmas, 2018 day, somebody named Tayler was being sexually assaulted by her bald Jewish husband of one year who had kidnapped her to New Orleans. 
 
 ### Resurrection 
 
