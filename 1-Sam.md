@@ -80,7 +80,7 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Geriatric unit hospitalization
         - Kids
           - Mobi
-      - Christmas, 2018 trauma, Volyoda, and hair regrowth
+      - Christmas, 2018 trauma revisited, Volyoda, and hair regrowth
         - Circumcision
         - Baptism
           - Mom alive
@@ -94,8 +94,7 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Resurrection
         - Jealousy
         - Coping with jealousy
-      - Future hair regrowths
-      - Intimacy healing
+        - Future hair regrowths
         - Intimacy healing
         - The artificial and synthetic
         - AI
