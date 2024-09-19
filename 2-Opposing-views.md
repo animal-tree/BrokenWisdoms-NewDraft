@@ -1279,7 +1279,7 @@ Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable 
 
 In the hospital, over the phone, I was able to just confront her (like, "Why'd you fuck him??" about her roommate), and that turned out to be fine. Note to self, easier said than done, and usually full of its own pitfalls: "release emotions right away," I would say, but that also doesn't work in the general case.
 
-## Future hair regrowths
+### Future hair regrowths
 
 My pubic hair grew back in 2021 while doing a strict steak/salmon-only diet with some Paleo leniency — it was definitely still grown back while I was doing that diet in December, 2021 — and fell out gradually. 
 
@@ -1288,8 +1288,6 @@ My eyelashes started growing back for the first time in summer, 2023, when I'd s
 However, adding this seems to undermine just how severe the injustice we're talking about is.
 
 The bullies at the University of Rochester's hospital and research institutions don't understand that they botched every action they took in their judgements, treatments, policies, decision-making, and (as will be shown, though hopefully it's apparent already) rulings, and did everything humanly possible, sometimes by blunder rather than on purpose, to take away and waste my dignity, money, social life, physical body, and work.
-
-## Intimacy healing
 
 ### Intimacy healing
 
