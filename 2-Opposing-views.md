@@ -362,7 +362,11 @@ My grandpa actually gave me his razor, an electric razor. It was the first razor
 
 It was the first time I grew out my beard and I did so out of a delightful intuition I had during an acid trip while still in college, looking at myself in the mirror, seeing myself as a caveman, with a big natural smile shining on my face, and the apparent glow of long hair imagined around my face.
 
+<!--
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, as described at the end of [Part 1](#part-1), I recurrently had the scariest (sleeping-)nightmare of my life, that night. 
+-->
+
+I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I had the scariest (sleeping-)nightmare of my life, as described in [Part 1](#part-1). 
 
 <!--
 Just before that, yet another premonition: the first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
@@ -384,7 +388,7 @@ It was in that house when Aetna cut me off from Dupilumab and my hair pretty rap
 
 ### 2016 - 2017
 
-The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests in a theater group, Henry accepted me into his PhD group as a doctoral student. 
+The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests<!-- in a theater group-->, Henry accepted me into his PhD group as a doctoral student. 
 
 ## Henry Kautz
 
