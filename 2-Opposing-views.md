@@ -443,7 +443,7 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > Buffy appreciation, quite honestly, was how I measured intelligence, a pretty high standard at my high school.
 >
-> It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 2 years in, and gave him my "Philosophy of Buffy" book as a gift. I had no idea he liked it (Buffy, I mean; I still don't know if he liekd the book). Apparently, he was "obsessed with it," which he added, is "kind of weird."
+> It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 2 years in, and gave him my "Philosophy of Buffy" book as a gift. I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book). Apparently, he was "obsessed with it," which he added, is "kind of weird."
 >
 > But it wasn't.
 > 
