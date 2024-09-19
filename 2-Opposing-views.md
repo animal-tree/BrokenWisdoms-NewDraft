@@ -1275,7 +1275,7 @@ While Tayler and I were still messaging, before the Kundalini physical sensation
 
 The camping and kayacking trip didn't work. Tayler didn't want to talk about my feelings. She got extremely offended really quickly whenever I tried to broach my emotions at my own pace in my slow, analytical way. Finding the way to express those things under pressure and risk of her sudden-180 rejections/bullying ("Alright lol") was impossible. 
 
-Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable I felt after finding her content, and she gave me no safe way to. 
+Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable I felt after finding her content, and she gave me no safe way to, except to try and process it with my friend Mohsen on a camping trip, and hope she'd let me without treating me like a bug, with her. 
 
 ## Future hair regrowths
 
