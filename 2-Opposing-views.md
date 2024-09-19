@@ -1153,7 +1153,7 @@ However, that lab is the least of the work I did ([here](5-Early-work-in-program
 
 ### Uncle Slava
 
-My uncle came over, quickly. I interviewed him a bit about his physics method. A company here in America hired him, becauseh was the only one who knew how to do something, something speicfic to lens-manufacturing. He was/is an optics physicist. One part of what he did, besides dunking a lens into some liquid to create a gradient, or something like that, was, before he retired in... I think 2022... identifying a certain part of the lens or stage in the process manually.
+My uncle came over, quickly. I interviewed him a bit about his physics method. A company here in America hired him, because he was the only one who knew how to do something, something speicfic to lens-manufacturing. He was/is an optics physicist. One part of what he did, besides dunking a lens into some liquid to create a gradient, or something like that, was, before he retired in... I think 2022... identifying a certain part of the lens or stage in the process manually.
 
 I told him a neural network could probably do it, with enough training data. So I inquired. He didn't want to share, thought I would find it boring, but I told him "For my PhD." 
 
