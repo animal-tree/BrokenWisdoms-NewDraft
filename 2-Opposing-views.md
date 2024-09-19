@@ -1392,7 +1392,7 @@ Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable 
 
 In the hospital, over the phone, I was able to just confront her (like, "Why'd you fuck him??" about her roommate), and that turned out to be fine. Note to self, easier said than done, and usually full of its own pitfalls: "release emotions right away," I would say, but that also doesn't work in the general case.
 
-### Chris Kanan
+## Chris Kanan
 
 <p align="center">
 <a href="https://github.com/slerman12/BrokenWisdoms/assets/9126603/c2d781ac-90e2-4f78-9b12-655fec5c1acb">
@@ -1431,7 +1431,7 @@ Coincidentally, they all had evidence that this is something I was trying to do 
 
 It is the first rewritable DataLoader that serves as a Replay for supervised, generative, and reinforcement learning as well as the novel algorithm for sampling without replacement, something that is standardly done in the former two but had never been done for priority experience replays in the latter, especially not in combination with lifelong storage capacity via [dynamic device allocation](https://github.com/slerman12/Builder/blob/64c92d7bf5c09642e161548c36625739884b01f7/UnifiedML/src/ML/World/Memory.py#L103-L107), [hard disk memory mapping](https://github.com/slerman12/Builder/blob/64c92d7bf5c09642e161548c36625739884b01f7/UnifiedML/src/ML/World/Memory.py#L524-L543), and [truly-shared in-RAM adaptive memory](https://github.com/slerman12/Builder/blob/64c92d7bf5c09642e161548c36625739884b01f7/UnifiedML/src/ML/World/Memory.py#L59-L150), in other words though extremely reductive: an accelerated parallelized DataLoader whose contents can be changed by the agent, and which include generalized sampling methods even when the dataset size is growing such as in a priority experience replay for DataLoader, and all of this added with a truly state of the art reinforcement learning algorithm/system DrQV2 as well as others with support for continuous and discrete domains, online or offline learning, and on-policy or off-policy, all of which — yes, all of which — I generalized into a unified API and framework to fully support supervised, generative, and reinforcement learning, the most general DataLoader/Experience Replay/Memory ever built, capable also of storing and updating parameters, not just data, meaning all of this with support for deep neural Memory, not just dataset-centric. Nothing like it exists — I’m afraid PyTorch or somebody will try to copy it upon reading this. The value of it was so immense and this brand new interim committee — all except Chris Kanan — had not the faintest scent of that — well, that's not true, Chenliang thought I could start a business and just cared about papers, but note, I needed his GPUs to finish. By the way, pretty much fully implemented, [and elegantly so](https://github.com/slerman12/Builder/blob/main/UnifiedML/src/ML/World/Memory.py) (but with no GPUs to finalize the small amount of work left on the library/framework as a whole, nor funding or undestroyed-human-spirit left to write the immense amount of documentation still needed, and personally, I think this book takes priority, not to mention, I've released all the code open-source under the MIT license, so traditional funding routes aren't an option anyway, plus I have other interconnected plans for my research, if given the reigns/money-rains to make it happen). Since I started building it for my PhD (from about 2021, in Chenliang's lab, onwards), some similar works have come out, like PyTorch’s entire reinforcement learning library, but none compare (the system was being built within a GATO/JEPA-type framework before either of those were published/announced). And has an [interface that plug-and-play substitutes the normal PyTorch DataLoader](https://github.com/slerman12/Builder/blob/main/UnifiedML/src/ML/World/Replay.py). It’s also accelerated and faster in every substantive way for supervised, too, at least Pytorch's default DataLoader, but possibly the more intricate accelerators, and was the first infrastructure in Chenliang Xu’s Computer Vision lab [capable of training ImageNet efficiently from scratch](https://github.com/slerman12/Builder/blob/main/tributaries-ml/src/tributaries/Examples/Sweeps/ImageNet.py), something not one other student in his Computer Vision lab — even with the most published papers — had (and probably "has" as of time of writing) ever done. To be clear, I was the first student in his PhD lab’s history — officially ranked one of the [top in the world in Computer Vision](https://csrankings.org/#/fromyear/2020/toyear/2024/index?vision&us) — to use any infrastructure (his or otherwise) for training ImageNet from scratch (meaning, not via fine-tuning an ImageNet-pre-trained model, nor just using a subset of the ImageNet dataset), the gold standard of his field, all within a GATO/JEPA type generalized (and more general than either of them) framework (whose construction also preceded both of those, by the way). That being said, his students, perhaps more so than Chenliang, appreciated what I was doing, though Chenliang knew it could've been valuable, and was good enough for a PhD. Both him and Niaz said I was ready to defend. Chenliag wanted me to write my thesis before he cut his funding, yet again on an impossible deadline. But a thesis is more important than a conference paper, and I couldn't have.
 
-### Tom Howard
+## Tom Howard
 
 <p align="center">
 <a href="https://github.com/slerman12/BrokenWisdoms/assets/9126603/85a04ddb-b8f6-4d0c-abac-3e407d34b7a0">
@@ -1474,7 +1474,7 @@ Tom Howard didn't make any tangible, explicit, or otherwise suggestions, nor did
 
 The actual six-month review was **May 5th, 2023**. Then Chenliang notified me of his desertion on **July 24th, 2023**, a day after I finished implementing the [novel reinforcement learning systems-based algorithm](https://github.com/AGI-init/UnifiedML/blob/ef14f7ff14b0b494d14bc8ee4bfe8925ad2a1fb3/ML/World/Replay.py#L566-L607) (and [here](https://github.com/slerman12/Builder/commit/e8b896c75bdeb388995af912a25108dfa16a92f9) is the specific commit), and Chenliang confirmed by email the desertion for the rest of the committee and Michael Scott on **August 10th, 2024**, the same day as my [early in-advance-of notice](https://github.com/slerman12/BrokenWisdoms/blob/Ancillary/Not-Enough-Carbs.md) to the committee and Michael Scott that I wouldn't attend the requirement (2), prior to the **August 30, 2023** date of requirement (2).
 
-### Charles Venuto
+## Charles Venuto
 
 <p align="center">
 <a href="https://github.com/slerman12/BrokenWisdoms/assets/9126603/88057836-9605-4d4a-86b1-00e8bcc86148">
@@ -1497,7 +1497,7 @@ I haven't spoken to Charles since we added that biomedical component to my [Tayl
 
 So in other words: Chris Kanan (who [didn't remember the meeting](https://github.com/slerman12/BrokenWisdoms/blob/Ancillary/Deus-Ex-Memory.md)) and Tom Howard fully determined my termination, besides Michael L. Scott. 
 
-### Recap
+## Recap
 
 <p align="center">
 <a href="https://github.com/slerman12/BrokenWisdoms/assets/9126603/5290be0b-5b0b-4d26-a0ed-bc6d1f7e1abd">
@@ -1508,7 +1508,7 @@ So in other words: Chris Kanan (who [didn't remember the meeting](https://github
 </a>
 </p>
 
-### Michael L. Scott
+## Michael L. Scott
 
 <p align="center">
 <a href="https://github.com/slerman12/BrokenWisdoms/assets/9126603/e4938352-3a54-450f-9fc7-0a58c3530b34">
@@ -1599,7 +1599,7 @@ For all of the aforementioned reasons, and final, I was terminated without degre
 
 These are just words. He didn't acknowledge anything I said, separately or together. He occasionally wrote that he disagreed with the characterization, and made no argument as to why.
 
-### Summary of why interim
+## Summary of why interim
 
 The committee that terminated me was a brand new *interim* committee, for just one meeting, for which they post-hoc wanted a make-up before the next one that they wouldn’t even attend. 
 
