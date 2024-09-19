@@ -391,7 +391,7 @@ Adding to the suspicion around benzos, there were even contradictions in recent 
 
 The Parkinson's disease progression models I built at the Med Center as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests, he accepted me into his PhD group as a doctoral student.
 
-### The Dead Marshes
+### Fall, 2018 semester, and the Dead Marshes
 
 After the house on May St., it was from my mom's apartment (in 2018) during a video call with my advisor that I described that biologically-inspired neuron architecture [above](#benzodiazepine-benzos-mechanism-of-action), with the specifics in the [video](https://drive.google.com/file/d/1i5hS2iDVuo24PnGicvn5dIZYXUzDfPAl/view?usp=share_link) comparing it to the LSTM architecture.
 
@@ -693,7 +693,7 @@ And after all of this, [literally nothing was cured](https://www.reddit.com/r/ku
 
 The trauma I went through during my psychosis (which the psychiatrists didn't even know about) doesn't compare to the >year of benzo neurochemical torture.
 
-### In the middle of it
+### Spring, 2019 semester
 
 #### Matt-Damon-potatoes-on-Mars
 
