@@ -36,15 +36,8 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Psychiatric unit
         - Sarah
         - Hudson
+        - Jeremiah
       - My trauma
-        - Israel birthright trip, and Jeremiah
-        - Clicking their healing pens three times
-        - In black and white
-        - The machinery behind the curtain
-        - Who was the Wonderful Malpractice of Oz?
-        - Wicked "which study?" of the West
-        - International date, suicide attempt, and literally-self-bootstrapped recovery
-          - And Erowid wasn't there, and "swim" wasn't there, and Badpill wasn't there…
     - Part 3 (University PhD advisors, University psychiatric ward janitor, University PhD committee members, University CS department Chair, University Deans)
       - Charles Venuto
       - Henry Kautz
@@ -54,7 +47,7 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Psychosis, and Rochester General Hospital (RGH)
           - Christmas, 2018
           - Swallowing my tongue
-          - Kundalini risen, perhaps jammed, and how I was convinced
+          - Kundalini risen/jammed, and what convinced me
           - Discharge from RGH
         - The unsampled world at Clover St.
         - University of Rochester Medicine
