@@ -356,11 +356,13 @@ I hope Charles and his colleagues may find the above diagram (["5 Computational 
 
 But before we come to the conclusion that Charles is caught "red-handed," he was very supportive as my advisor; and he was left-handed, I recall, like my grandpa.
 
+<!--
 ### Uncanny beard premonitions
 
 My grandpa actually gave me his razor, an electric razor. It was the first razor I ever had, that I used to shave in high school and all through college. I was right-handed; I'm sure my grandpa used his left hand; I'm sure Charles was startled when I started coming into the office at the Center for Health and Technology with the early traces of a beard, in the late summer of 2017.
 
 It was the first time I grew out my beard and I did so out of a delightful intuition I had during an acid trip while still in college, looking at myself in the mirror, seeing myself as a caveman, with a big natural smile shining on my face, and the apparent glow of long hair imagined around my face.
+-->
 
 <!--
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, as described at the end of [Part 1](#part-1), I recurrently had the scariest (sleeping-)nightmare of my life, that night. 
@@ -370,11 +372,13 @@ I didn't risk to grow it out in college, but was toying with the idea. Independe
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I had the scariest (sleeping-)nightmare of my life, as described in [Part 1](#part-1).
 -->
 
+<!--
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, I recurrently had the scariest sleeping-nightmare of my life, as described in [Part 1](#part-1). That was uncanny omen 3, as well as the two weeks [complaining in Israel](#jeremiah). 
 
 Never had a nightmare like that, all night, before or after.
 
 Just happened to grow out my facial hair right before all my hair was purged.
+-->
 
 <!--
 Just before that, yet another premonition: the first day I injected Dupilumab, that night I had the scariest nightmare of my life. 
@@ -393,10 +397,9 @@ The beard I grew out for the first time just months before I lost my hair, based
 <!-- 
 It was in that house when Aetna cut me off from Dupilumab and my hair pretty rapidly fell out.
 -->
-
+<!--
 ### 2016 - 2017
-
-The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests<!-- in a theater group-->, Henry accepted me into his PhD group as a doctoral student. 
+-->
 
 ## Henry Kautz
 
@@ -408,6 +411,8 @@ The Parkinson's disease progression models I built at the Med Center in college 
 </picture>
 </a>
 </p>
+
+The Parkinson's disease progression models I built at the Med Center in college as an undergrad earned me a recommendation back to Henry Kautz, [as well as a news article](https://www.rochester.edu/newscenter/undergraduate-students-place-in-top-three-in-parkinsons-disease-data-science-contest-228912/). On top of that, I built [a sleek website API for Twitter GNIP data mining](https://github.com/slerman12/TwitterDataCollector) for Henry's research group, and was praised by other affiliates of his that he recommended me to, at [Bryx emergency response](https://bryx.com). As a result, combined with my eclectic interests<!-- in a theater group-->, Henry accepted me into his PhD group as a doctoral student. 
 
 ### Fall, 2018 semester, and the Dead Marshes
 
@@ -437,15 +442,15 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > In high school, I loved Lost, and Community, and Better Off Ted, and at some point Reaper, a show no one's heard of. But my favorite-favorite was Buffy the Vampire Slayer, which was available for streaming on Netflix. I was obsessed (as well as with ["Dr. Horrible's Sing-Along Blog"](https://youtu.be/Of9kHpCv1ts?si=FPBQagGV-MX0BOK4)).
 >
-> Almost nobody heard of it at my high school. 
+> Almost nobody heard of Buffy at my high school. 
 >
 > The first person who took my recommendation got through multiple seasons, on my repeated insistence, and still didn't like it.
 >
-> Those were the earliest days of Golden Age Peak TV (2011 - 2013), just when the shows were at their best, and yet no one had quite yet noticed, except me... I was rabid. Buffy started in the 90s, but my rabid-ness went to the past as well.
+> Those were the earliest days of Golden Age Peak TV. 2011 - 2013, just when the shows were at their best, and yet no one had quite yet noticed... but I was rabid. Buffy started in the 90s, and my rabid-ness went into the Peak TV past as well.
 >
-> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious, mostly because of Firefly.
+> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious, because of Firefly.
 >
-> It wasn't until my senior year, that I met anybody who liked Buffy the Vampire Slayer, these two kids who went to a private school, who I met because I saw one of them had a totally different shared interest from a comment he made on Facebook, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party where I met other kids who went to his school, including the other one, one of his friends who walked right up to me with a big smile and was so enthusiastic that I shared her love of Buffy. We loved it — an unusual amount — the meeting was "serendipitious." But at that school, a private wealthier school, those tastes seemed surprisingly more appreciated, and I found in college, while still usually rare to meet other fans, the taste was more commonly appreciated, too, and the two best friends I made after befriending these two who I wish there was time to have been my best friends were also remarkably serendipitous.
+> It wasn't until my senior year, that I met anybody who liked Buffy the Vampire Slayer, these two kids who went to a private school, who I met because I saw one of them had a totally different shared interest from a comment he made on Facebook, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party where I met other kids who went to his school, including the other one, one of his friends who walked right up to me with a big smile and was so enthusiastic that I shared her love of Buffy. We loved it — an unusual amount — the meeting was "serendipitious." But at that school, a private wealthier school, those tastes seemed surprisingly more appreciated, and I found in college, while still usually rare to meet other fans, the taste was more commonly appreciated, too, and the two best friends I made after befriending these-two-who-I-wish-there-was-time-to-have-been-my-best-friends were also remarkably serendipitous (is that sentence coherent?).
 >
 > Two of the first friends I made in college, by extreme coincidence, specifically loved Buffy as much as I did and were the girls in my neighboring dorm, one of whom had messaged me about Joss Whedon specifically, all of us assigned to those rooms entirely by the university's random selection. We'd become best friends. I pretty much lived in their dorm. It was extremely coincidental. The other dorm near ours also housed a girl who liked Buffy a lot, by chance. There were more people neighboring me in that Freshman hall who liked Buffy a lot, than perhaps all the people I'd meet in college thereafter who did so too, and all those I met previous up to then.
 >
@@ -453,7 +458,7 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > I didn't know Henry was one of them.
 >
-> Buffy appreciation, quite honestly, was how I measured intelligence, a pretty high standard at my high school.
+> Buffy appreciation, quite honestly, was how I measured intelligence, a pretty high standard.
 >
 > It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 2 years in, and gave him my "Philosophy of Buffy" book as a gift. I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book). Apparently, he was "obsessed with it," which he added, is "kind of weird."
 >
@@ -463,7 +468,7 @@ After the house on May St., I was coming up with and seeking a method that could
 >
 > Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.
 >
-> And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others didn't appreciate quite that obsessively, that much (the show helmed by the guy who would go on to... also helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/)).
+> And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others didn't appreciate quite that obsessively, that much (the show helmed by the guy who would go on to... also helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/), that I don't even want to name here because of the perception — er, The Avengers — no more than I wanted to name "ChatGPT" — ahhh!).
 
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
 
@@ -474,10 +479,6 @@ I'm not trying to be mean to anybody. This is the truth. It's hard to express, b
 Most people get into those positions through natural memorization ability, or obsessive memorization, and then make some minor deviations from what was taught to them that they call research, and that combination of memorization and very-linear tinkering gets esteemed if they're able to write it up in the standard academic jargon. That last part — jargon — is most of what academia beyond the memorization-stage requires. Even those professors who make a dent, often get there by luck, usually around a really simple idea well executed.
 
 In med school, the ability to memorize which prescriptions correspond to which diagnoses, and which diagnoses correspond to which symptoms, and which anatomical events correspond to which symptoms, is something ChatGPT-like AIs can pass [exceptionally](https://arxiv.org/abs/2404.18416), with [even better bedside manner](https://www.nature.com/articles/d41586-024-00099-4).
-
-<!--
-I'm not trying to be mean to anybody. This is the truth. It's hard to express, because it implies that the world is bad, that people with authority are stupider than they're credited and esteem themselves, that they're not just stupid, but actually really, really, like really stupid, and in vast majority. THAT might make writing and reading this hard. It might even make it hard to believe, if you haven't seen this for yourself, as a student. I'd say the same about the other PhD students though. I'd say this about every professor and PhD student who was in the CS department. Not personally, not that they're always stupid, but that, in general, they were. Undergrads maybe see grad students as knowing so much more, but those grad positions, and professorial, don't require intelligence to earn, so much as obsessive memorization of facts others taught you, and perhaps some ability to claim that one has woven something new from those facts. In most cases, actual intelligence, or aything actually novel, would get in the way.
--->
 
 I went to a conference that year, NeurIPS, 2018, in Montreal. At the time it was called "NIPS, 2018." I met the DeepMind researcher Ryan Faulkner, who co-authored the [RNN memory](https://arxiv.org/abs/1806.01822) paper, that innovated on the RNN cell by applying internally the MHDPA method, who was so impressed with me that he invited me to lunch, and during lunch, as we were talking, he said he would recommend me to a position at DeepMind if I applied, back in 2018. 
 
