@@ -1436,6 +1436,8 @@ Note: I wasn't jealous. I just wanted to talk about how intensely uncomfortable 
 
 In the hospital, over the phone, I was able to just confront her (like, "Why'd you fuck him??" about her roommate), and that turned out to be fine. Note to self, easier said than done, and usually full of its own pitfalls: "release emotions right away," I would say, but that also doesn't work in the general case.
 
+If people just knew how to feel happy, they would. And the way to do that is always through all of us being really good people to each other. So if people could, they would. It’s not a question of whether they would; it’s a question of whether either (a) they can, or (b) know that if they did, if we all did, they’d be happier. Point (b) is a prisoner’s dilemma for some people, as they avoid doing so themselves out of the excuse that others won’t.  Point (a) is my problem. I try my damn best and people don’t like me, I keep getting tortured, and I keep suffering inhumane conditions without dignity and without the energy, strength, and morale to be what others want. 
+
 ## Chris Kanan
 
 <p align="center">
