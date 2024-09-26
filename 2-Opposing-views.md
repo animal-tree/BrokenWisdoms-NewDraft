@@ -648,16 +648,16 @@ In my second hospitalization, the environment was much better than RGH's. I made
 > Sarah was in her early 20s, by chance hospitalized at the same time as me, also early 20s. She was a year older, blond. Hudson also early 20s, brown hair.
 -->
 
-Sarah’s sister’s name is "Kundalini Grace." I hadn’t heard of "Kundalini" until after I had those visceral, physical sensations in the House on May St. Then I looked up those sensations I was experiencing and found, for the first time, not having heard the word or of those movements and sensations before, the term "Kundalini," made more credible to me by the philosophy’s appreciation by the depth psychologist Carl Jung, who I was reading at the time, and whose views, very distinct from Freud's, on the existence of a subconscious, and its mystical-transcendent connection, helped explain some of what I was witnessing. 
-
-> [!NOTE]
-> I define synchronicity as “a teleological connecting principle,” somewhat distinct from [Jung’s analogous definition](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1) as “a causal connecting principle.” 
+Sarah’s sister’s name is "Kundalini Grace." I hadn’t heard of "Kundalini" until after I had those visceral, physical sensations in the House on May St. Then I looked up those sensations I was experiencing and found, for the first time, not having heard the word or of those movements and sensations before, the term "Kundalini," made more credible to me by the philosophy’s appreciation by the depth psychologist Carl Jung, who I was reading at the time, and whose views, very distinct from Freud's, on the existence of a subconscious, and its mystical-transcendent connection, helped explain some of what I was witnessing.  
 
 Sarah Young’s last name is "Jung," she hadn't heard of Carl Jung, she and I kept observing synchronicities while we were there, and she kept a synchronicity list. To me, no synchronicities happened yet that were bigger than just the uncanny precision and specificity of the I Ching’s answers. However, I was still seeing some unambiguous synchronicities, as well as not seeing many others, including that the word "synchronicity" was actually coined by Jung, and now I was remarking on them  together with one Sarah "Jung." But there were more I hadn't seen, and more, much bigger, that would come.
 
 The House on May St., in retrospect was one big synchronicity. I got the Facebook student housing page moderatorship just before I had to move out, and was able to deliver on my promise to fill my landlord’s house (and houses) with grad students. Not to mention, the house itself. Having that whole house, pretty much to myself, a beautiful antique house, for relatively pennies, the same house I had my AI and physics revelations — "luck" seems to forget a lot of context.
 
 So the word "synchronicity" was already familiar, as was Jung, as was Kundalini, as was Grace, by the time Sarah and I met in the hospital. 
+
+> [!NOTE]
+> I define synchronicity as a teleological connecting principle, somewhat distinct from [Jung’s analogous definition](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1) as an acausal connecting principle.
 
 <!--
 > [!NOTE]
