@@ -657,7 +657,7 @@ The House on May St., in retrospect was one big synchronicity. I got the Faceboo
 So the word "synchronicity" was already familiar, as was Jung, as was Kundalini, as was Grace, by the time Sarah and I met in the hospital. 
 
 > [!NOTE]
-> I define synchronicity as a teleological connecting principle, somewhat distinct from [Jung’s analogous definition](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1) as an acausal connecting principle.
+> I define "synchronicity" as a "teleological connecting principle," somewhat distinct from [Jung’s analogous definition](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1) as an "acausal connecting principle."
 
 <!--
 > [!NOTE]
