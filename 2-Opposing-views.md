@@ -824,6 +824,8 @@ Had I taken a medical leave, I would've lost my salary, and wouldn't have been a
 > Buffy the Vampire Slayer was my and Henry's favorite show. In season 6 of Buffy, her Watcher (advisor) Giles had to leave. He sang a song with the lyrics, ["I know I said that I'd be standing by your side. But I... But I'm standing, in the way."](https://youtu.be/4YKg6016rTQ?si=o4e-46-oq1laf_23) 
 -->
 
+#### Giles
+
 > [!NOTE]
 > ### Giles
 >
