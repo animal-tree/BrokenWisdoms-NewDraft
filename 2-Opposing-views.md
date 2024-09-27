@@ -662,7 +662,7 @@ So the word "synchronicity" was already familiar, as was Jung, as was Kundalini,
 -->
 
 > [!IMPORTANT]
-> I define synchronicity as a *teleological* [connecting principle](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1), where there is a cause, and that cause is God/Tao/Brahman/Allah/[Physics](#the-unsampled-world-at-clover-st), and the teleology is [social healing.](https://www.linkedin.com/pulse/exploring-authentic-leadership-teleology-vs-causality-utpal-dutta-d5w6f)
+> I define synchronicity as a *teleological* [connecting principle](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1), where there is a cause, and that cause is God/Tao/Brahman/[physics](#the-unsampled-world-at-clover-st), and the teleology is [social healing.](https://www.linkedin.com/pulse/exploring-authentic-leadership-teleology-vs-causality-utpal-dutta-d5w6f)
 
 <!--
 > [!NOTE]
