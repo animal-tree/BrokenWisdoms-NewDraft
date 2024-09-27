@@ -430,20 +430,9 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > From college to PhD, I didn't know Henry's favorite show was Buffy.
 > 
-> <!--Henry's--> <!-- It was a huge coincidence that his--> <!--favorite show was Buffy.--> I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me.<!--, who I met actually through that friend in the dorm next to mine who turned out not to like Buffy as much.--> <!--I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book).--> Apparently, Henry was "obsessed with<!--it,"-->" Buffy, which he added, is "kind of weird."
+> I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me." Buffy, which he added, is "kind of weird."
 >
 > Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
-
-
-
-<!-- But it wasn't.-->
-
-<!--Buffy was my favorite show all through high school and college, and probably still is today.-->
-
-<!--Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.-->
-
-<!-- And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something--> <!--others in his cohort didn't--> <!--(the show helmed by the guy who would go on to...--> <!--also-> <!--helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/)--><!--, that I don't even want to name here because of the perception — er, The Avengers — no more than I wanted to name "ChatGPT" — ahhh!--><!--).-->
-
 
 <!--
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
