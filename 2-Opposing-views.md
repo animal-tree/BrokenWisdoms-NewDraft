@@ -430,7 +430,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 > 
 > I was accepted into his PhD group not knowing that, didn't know that for another year, and when I found out 1 year in, I was shocked. He said he was "obsessed with" Buffy, which he added is "kind of weird." I dropped off my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book, with a kind note, in his mailbox as a gift, re-gifting it from my best friend.
 >
-> Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
+> Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon, the creator of Buffy, wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
 >
 > Back in high school, all the best *shows* got cancelled, for which Joss Whedon was notorious, because of Firefly. So I am adding this just to say that I am not cancelling Henry.
 
