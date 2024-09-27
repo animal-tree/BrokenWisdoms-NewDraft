@@ -432,7 +432,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > <!--Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.-->
 >
-> Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of (Joss Whedon wrote The Avengers). Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
+> Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
 
 <!-- And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something--> <!--others in his cohort didn't--> <!--(the show helmed by the guy who would go on to...--> <!--also-> <!--helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/)--><!--, that I don't even want to name here because of the perception — er, The Avengers — no more than I wanted to name "ChatGPT" — ahhh!--><!--).-->
 
