@@ -412,8 +412,6 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > Those were the earliest days of Golden Age Peak TV. 2011 - 2013, just when the shows were at their best, and yet no one had quite yet noticed... but I was rabid. Buffy started in the 90s, and my rabid-ness went into the Peak TV past as well.
 >
-> Back then, all the best *shows* got cancelled, for which Joss Whedon was notorious, because of Firefly.
->
 > It wasn't until my senior year, that I met anybody who liked Buffy the Vampire Slayer, these two kids who went to a private school, who I met because I saw one of them had a totally different shared interest from a comment he made on Facebook, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party where I met other kids who went to his school, including the other one, one of his friends who walked right up to me with a big smile and was so enthusiastic that I shared her love of Buffy. <!--We loved it — an unusual amount — the meeting was "serendipitious." But at that school, a private wealthier school, those tastes seemed surprisingly more appreciated, and I found in college, while still usually rare to meet other fans, the taste was more commonly appreciated, too, and the two best friends I made after befriending these-two-who-I-wish-there-was-time-to-have-been-my-best-friends were also remarkably serendipitous (is that sentence coherent?).-->
 >
 > <!--I really regretted not being able to become closer friends with them. -->
@@ -433,6 +431,8 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 > I was accepted into his PhD group not knowing that, didn't know that for another year, and when I found out 1 year in, I was shocked. He said he was "obsessed with" Buffy, which he added is "kind of weird." I dropped off my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book, with a kind note, in his mailbox as a gift, re-gifting it from my best friend.
 >
 > Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
+>
+> Back in high school, all the best *shows* got cancelled, for which Joss Whedon was notorious, because of Firefly. So I am adding this just to say that I am not cancelling Henry.
 
 <!--
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
