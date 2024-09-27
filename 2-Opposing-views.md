@@ -656,8 +656,13 @@ The House on May St., in retrospect was one big synchronicity. I got the Faceboo
 
 So the word "synchronicity" was already familiar, as was Jung, as was Kundalini, as was Grace, by the time Sarah and I met in the hospital. 
 
+<!--
 > [!NOTE]
 > I define "synchronicity" as a "[teleological](https://www.linkedin.com/pulse/exploring-authentic-leadership-teleology-vs-causality-utpal-dutta-d5w6f) connecting principle," somewhat distinct from [Jung’s analogous definition](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1) of "synchronicity" as an "acausal connecting principle," in that I don't think that just because there is no known cause that there is not a cause, and that such a cause doesn't have a purpose, which is what (purpose) "teleology" refers to, and the link, by chance, refers to social healing.
+-->
+
+> [!NOTE]
+> I define synchronicity as a *teleological* [connecting principle](https://www.abebooks.com/servlet/BookDetailsPL?bi=31992979134&ref_=pd_hw_o_1), where there is a cause, and that cause is God/Tao/Brahman/Allah/Physics, and the teleology is [social healing.](https://www.linkedin.com/pulse/exploring-authentic-leadership-teleology-vs-causality-utpal-dutta-d5w6f)
 
 <!--
 > [!NOTE]
