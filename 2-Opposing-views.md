@@ -426,9 +426,9 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > His <!-- It was a huge coincidence that his--> favorite show was Buffy. I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Philosophy of Buffy" book that my best friend had given me. <!--I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book).--> Apparently, he was "obsessed with<!--it,"-->" Buffy, which he added, is "kind of weird."
 >
-> But it wasn't.
+> <!-- But it wasn't.-->
 > 
-> Buffy was my favorite show all through high school and college, and probably still is today.
+> <!--Buffy was my favorite show all through high school and college, and probably still is today.-->
 >
 > <!--Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.-->
 
