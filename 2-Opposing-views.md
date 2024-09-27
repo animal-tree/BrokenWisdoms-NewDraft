@@ -424,7 +424,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. --> then.
 >
-> Henry's <!-- It was a huge coincidence that his--> favorite show was Buffy. I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me, who I met actually through that friend in the dorm next to mine who turned out not to like Buffy as much. <!--I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book).--> Apparently, Henry was "obsessed with<!--it,"-->" Buffy, which he added, is "kind of weird."
+> Henry's <!-- It was a huge coincidence that his--> favorite show was Buffy. I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me.<!--, who I met actually through that friend in the dorm next to mine who turned out not to like Buffy as much.--> <!--I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book).--> Apparently, Henry was "obsessed with<!--it,"-->" Buffy, which he added, is "kind of weird."
 >
 > <!-- But it wasn't.-->
 > 
