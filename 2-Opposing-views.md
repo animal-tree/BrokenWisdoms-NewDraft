@@ -914,7 +914,7 @@ As Niaz said, "I don't know what he was thinking."
 ### Comedic Aside: Sexier moments during Chenliang advising:
 
 Got to message someone named Tayler a week after my Taylor-CAM paper who reached out to me on Facebook who turned out to be a cam-girl (["Taylor-CAM"](https://arxiv.org/abs/2006.08601))… 
-- She started interacting with me one week after I archived my ["Taylor-CAM"](https://arxiv.org/abs/2006.08601) paper, my first-ever published paper. She told me about a similar trauma she went through on the same Christmas, 2018 night, together with her *bald Jewish* husband (who she was married to at the time). After intensely flirting with me and telling me she loved me, including at one point offering to pay for my plane tickets to fly to her (which I couldn't do because of an eczema outbreak that coincided during the late summer, 2020), she lost interest in me and increasingly made clear that she was seeing other guys.
+- She started interacting with me one week after I archived my ["Taylor-CAM"](https://arxiv.org/abs/2006.08601) paper summer 2020, my first-ever published paper. She told me about a similar trauma she went through on the same Christmas, 2018 night, together with her *bald Jewish* husband (who she was married to at the time). After intensely flirting with me and telling me she loved me, including at one point offering to pay for my plane tickets to fly to her (which I couldn't do because of an eczema outbreak that coincided during the late summer), she lost interest in me and increasingly made clear that she was seeing other guys.
 
 > [!WARNING]
 > ### Tayler
