@@ -424,7 +424,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > <!--I didn't know Henry was one of them.-->
 >
-> Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. --> then. Wealth and higher education, though, also seemed to increase likelihood of Buffy fandom, but not so much as to exclude intelligence. It was a big surprise to me though to meet those people in the private school, and then more people in college, with such a different kind of appreciation for my interests. It was literally surreal.
+> Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. --> then. Wealth and higher education, though, also seemed to increase likelihood of Buffy fandom, but not so much as to exclude intelligence. It was a big surprise to me though to meet those people in the private school, and then more people in college, with an appreciation for my interests. It was literally surreal.
 >
 > I was so nervous with the first group, and regret missing closer bonding with them. The second group didn't make sense to me, but I was surrounded, and there was no escape from the universe managing to actually socially integrate me with humans.
 >
