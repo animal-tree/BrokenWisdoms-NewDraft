@@ -430,7 +430,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > From college to PhD, I didn't know Henry's favorite show was Buffy.
 > 
-> I was accepted into his PhD group not knowing that. I found out 1 year in, and re-gifted him my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me." Buffy, which he added, is "kind of weird."
+> I was accepted into his PhD group not knowing that, didn't know that for another year, and when I found out 1 year in, I was shocked. He said he was "Obsessed with" Buffy, which he added, is "kind of weird." I dropped off my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book that my best friend had given me in his mailbox as a gift, re-gifting it from my best friend.
 >
 > Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
 
