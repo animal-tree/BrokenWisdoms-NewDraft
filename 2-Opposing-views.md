@@ -435,32 +435,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > Back in high school, all the best shows got cancelled, for which Joss Whedon was notorious, because of Firefly. So, so as to distinguish both of us from bad movie execs and producers, I am adding this paragraph just to say that I am not cancelling Henry.
 
-<!--
-> [!NOTE]
-> ### Buffy
->
-> In high school, I loved Lost, and Community, and Better Off Ted, and at some point Reaper, a show no one's heard of. But my favorite-favorite has been Buffy the Vampire Slayer, which at the time was available on Netflix. I was obsessed.<!--, as well as with [Dr. Horrible's Sing-Along Blog](https://youtu.be/Of9kHpCv1ts?si=FPBQagGV-MX0BOK4).-->
->
-> Almost nobody heard of Buffy in my high school, 2011 - 2013, Golden Age Peak TV era. I had a debate with my friend, another film buff, where I claimed TV shows were better than movies. He didn't believe me yet that they were better than movies, but later admitted it. In my high school, all those TV shows were getting missed<!--, at least by many of the people I talked to-->. Buffy had been out since the 90s/early 2000s, and was the most — maybe universally at my high school — unappreciated.
->
-> The first person who took my recommendation got through multiple seasons, on my repeated insistence, and still didn't like it.
->
-> It wasn't until my senior year, 2012 or 2013, I met somebody who liked Buffy the Vampire Slayer. I met him because he commented on a friend's Facebook post about a totally different shared interest, and I messaged him, he wanted to hang out to my surprise, and then he invited me to his birthday party. There, I met other kids who went to his school, including the other Buffy fan I met in high school, one of his friends who walked right up to me with a big smile and was so enthusiastic about my Buffy love. 
->
-> Two of the first friends I made in college, by extreme coincidence, loved nerdy shows, especially Joss Whedon shows and Buffy, and were the people in my neighboring dorm. One of them later told me she didn't like Buffy that much, let's call her Tara. Her girlfriend however, let's call her Willow, was such a big Buffy fan that she even made me feel guilty for not knowing some trivia about one of the episodes. The other one, who I'll call Buffy, was one of the only people I ever watched Buffy together with. They both became my best friends that semester and I lived in their dorm. The other dorm near ours also housed <!--a girl--> someone who liked Buffy a lot, by chance. I was roomed near them by the university's random selection. Extreme Buffy fandom wasn't *that* common in college. I was their Xander.
->
-> Buffy appreciation, quite honestly, was how I measured intelligence then. Wealth and higher education, though, also seemed to increase likelihood of Buffy fandom, but not so as to without further Buffy-factor predict intelligence. It was a big surprise to me to meet those people in the private school, and then more people in college, with an appreciation for the shows I appreciated. It was literally surreal.
->
-> I was so nervous with the first group, and regret missing the chance to bond more with them. The second group didn't make sense to me, but I was surrounded, and there was no escape from the universe giving me a good social life.
->
-> From college to PhD, I didn't know Henry's favorite show was Buffy.
-> 
-> I was accepted as his PhD student not knowing that. I found out 1 year into the PhD program, and was kind of shocked. He said he was "obsessed with" Buffy, which he added is "kind of weird." I dropped off my "Buffy the Vampire Slayer and Philosophy: Fear and Trembling in Sunnydale" book, with a kind note, in his mailbox as a gift, re-gifting it from my best friend, different person (the one referenced many times above), who I met actually because he was roomed by chance with Tara, in a second non-frat near/on-campus house that I also pretty much lived in, in my senior year of college, better than May St. (because of them).
->
-> Henry had a rare taste for something that others hadn't heard of as much, that would later contribute to the creation of something everybody has heard of. Joss Whedon created Buffy, and later wrote The Avengers, exploding from esoteric-nerdom to Blockbuster-God-man to cancelled-bad-man. Interestingly, Henry quipped and talked in a way reminiscent to Joss Whedon, and had theater writing experience, though as my advisor, Henry was more like Giles, Buffy's Watcher (advisor). Similarly, the method that I had a rare appreciation for, MHDPA, that had gone on to transformer-roll-out into being ChatGPT, would, much like Marvel movies, destroy civilization.
->
-> Back in high school, all the best shows got cancelled, for which Joss Whedon was notorious, because of Firefly. So, so as to distinguish both of us from bad movie execs and producers, I am adding this paragraph just to say that I am not cancelling Henry.
--->
+
 <!--
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
 
