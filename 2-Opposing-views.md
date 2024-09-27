@@ -424,7 +424,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. --> then. Wealth and higher education, though, also seemed to increase likelihood of Buffy fandom, but not so as to without further Buffy-factor predict intelligence. It was a big surprise to me to meet those people in the private school, and then more people in college, with an appreciation for the shows I appreciated. It was literally surreal.
 >
-> I was so nervous with the first group, and regret missing the chance to bond with them more. The second group didn't make sense to me, but I was surrounded, and there was no escape from the universe giving me a good social life.
+> I was so nervous with the first group, and regret missing the chance to bond more with them. The second group didn't make sense to me, but I was surrounded, and there was no escape from the universe giving me a good social life.
 >
 > From college to PhD, I didn't know Henry's favorite show was Buffy.
 > 
