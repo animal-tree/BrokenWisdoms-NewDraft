@@ -432,7 +432,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > Henry had a rare taste for something that others hadn't heard of, that would later contribute to the creation of something everybody has heard of. Joss Whedon, the creator of Buffy, wrote The Avengers, and interestingly, Henry quipped and talked in a way reminiscent of Joss Whedon, and had previously done some theater writing, but as my advisor, Buffy's Watcher (advisor) Giles would be the best analogy. Similarly, I had a rare appreciation for MHDPA, which became ChatGPT. Much like Marvel movies, the method I liked would go on to destroy civilization.
 >
-> Back in high school, all the best *shows* got cancelled, for which Joss Whedon was notorious, because of Firefly. So I am adding this just to say that I am not cancelling Henry.
+> Back in high school, all the best shows got cancelled, for which Joss Whedon was notorious, because of Firefly. So I am adding this just to say that I am not cancelling Henry.
 
 <!--
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
