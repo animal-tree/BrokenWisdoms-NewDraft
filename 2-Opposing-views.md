@@ -420,7 +420,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > <!--I didn't meet too many Buffy fans thereafter, actually, for the remainder of my undergrad years.-->
 >
-> I didn't know Henry was a Buffy fan
+> I didn't know Henry was a Buffy fan.
 >
 > Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. --> then.
 >
