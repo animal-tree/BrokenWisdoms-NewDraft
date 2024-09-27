@@ -400,7 +400,7 @@ After the house on May St., I was coming up with and seeking a method that could
 Adding experiments, back then though, wasn't so easy, because infrastructures for transformers and those benchmarks didn't exist. I programmed in TensorFlow 1.0 and Sonnet, in 2018. I didn't realize for a long time that I was the first to innovate on MHDPA, and that if not for the coercion of benzos, I would have very plausibly gotten credit for it. By the time I had a chance, I was now answering much more heavily to an overseeing authority, the method lost relevance, and I tried to find time for other research directions that, unlike my method from 2018, at that point were still looking far ahead (and again beyond where the research zeitgeist was, then).
 -->
 
-<!--
+
 > [!NOTE]
 > ### Buffy
 >
@@ -433,7 +433,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 > Henry was a youthful elderly man with a lot of wisdom, very-much a Giles figure. Actually, he resembled Joss Whedon, the way he quipped, but acted to me like Giles, Buffy's "Watcher" (advisor), in his manner and support.
 >
 > And, like my early intuition of MHDPA (the method that would become ChatGPT), he had a rare taste for something others in his cohort didn't (the show helmed by the guy who would go on to... also helm something that was probably [the beginning of the breakdown of civilization](https://deadline.com/2010/04/marvel-close-to-whedon-hire-on-the-avengers-31658/), that I don't even want to name here because of the perception — er, The Avengers — no more than I wanted to name "ChatGPT" — ahhh!).
--->
+
 
 <!--
 Henry and I both didn't have experience with deep learning prior to when I entered the PhD program. Up until that summer before my first year as a PhD student, I had been working with random forest models. I had to teach myself — really quickly —  and through hard-to-believe intuition, the full state of the art and then some as I started the program, as I took grad-level depth and "breadth" courses, none of which at the University of Rochester were especially helpful, and my professors and students around me had very little to offer.
