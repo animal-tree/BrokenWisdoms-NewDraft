@@ -422,7 +422,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 >
 > I didn't know Henry was one of them.
 >
-> Buffy appreciation, quite honestly, was how I measured intelligence, a pretty high standard.
+> Buffy appreciation, quite honestly, was how I measured intelligence<!--, a pretty high standard. -->then.
 >
 > It was a huge coincidence that his favorite show was Buffy. I joined his PhD program not knowing that. I found out 1 year in, and re-gifted him my "Philosophy of Buffy" book that my best friend gave me. I had no idea he liked it (Buffy, I mean; I still don't know if he liked the book). Apparently, he was "obsessed with it," which he added, is "kind of weird."
 >
