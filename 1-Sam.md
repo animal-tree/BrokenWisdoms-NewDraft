@@ -55,8 +55,9 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
           - Sarah
           - Flying colors
         - Spring, 2019 semester
-          - Matt-Damon-potatoes-on-Mars
           - Area exam
+          - The Martian
+          - Giles
             - Giles
       - Chenliang Xu
       - Comedic Aside: Sexier moments during Chenliang tenure:
@@ -71,6 +72,7 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
           - Medical system diet arguments
         - Ascent of a Jewish old grandpa
         - Geriatric unit hospitalization
+        - Nurses
         - Kids
           - Mobi
         - Future hair regrowths
