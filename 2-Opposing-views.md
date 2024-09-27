@@ -412,7 +412,7 @@ Adding experiments, back then though, wasn't so easy, because infrastructures fo
 
 
 > [!NOTE]
-> ### Buffy the Vampire Slayer
+> ### Buffy
 >
 > In high school, I loved Lost, and Community, and Better Off Ted, and at some point Reaper, a show no one's heard of. But my favorite-favorite has been Buffy the Vampire Slayer, which at the time was available on Netflix. I was obsessed.<!--, as well as with [Dr. Horrible's Sing-Along Blog](https://youtu.be/Of9kHpCv1ts?si=FPBQagGV-MX0BOK4).-->
 >
