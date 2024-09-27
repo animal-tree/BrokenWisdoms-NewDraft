@@ -320,6 +320,15 @@ My grandpa actually gave me his razor, an electric razor. It was the first razor
 It was the first time I grew out my beard and I did so out of a delightful intuition I had during an acid trip while still in college, looking at myself in the mirror, seeing myself as a caveman, with a big natural smile shining on my face, and the apparent glow of long hair imagined around my face.
 -->
 
+
+
+### Uncanny beard premonition
+
+My grandpa actually gave me his razor, an electric razor. It was the first razor I ever had, that I used to shave in high school and all through college. I was right-handed; I'm sure my grandpa used his left hand; I'm sure Charles was startled when I started coming into the office at the Center for Health and Technology, in the late summer of 2017, with the early traces of a beard.
+
+It was the first time I grew out my beard and I did so out of an intuition, just before Aetna had cut me off from Dupilumab.
+
+
 <!--
 I didn't risk to grow it out in college, but was toying with the idea. Independent to that, the first day I injected Dupilumab, before any beard, that night, as described at the end of [Part 1](#part-1), I recurrently had the scariest (sleeping-)nightmare of my life, that night. 
 -->
