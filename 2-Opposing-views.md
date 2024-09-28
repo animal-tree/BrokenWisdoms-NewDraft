@@ -227,9 +227,7 @@ The experience of losing my hair has cost me relationships and worsened my socia
 
 <!-- ``1941 - 2023`` -->
 
-- **University PhD advisors**
 - **University-hospital police officers**
-- **University-hospital nurses**
 - **University psychiatric ward janitor**
 - **University PhD committee members**
 - **University CS department Chair**
