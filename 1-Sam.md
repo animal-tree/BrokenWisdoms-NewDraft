@@ -38,7 +38,7 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
         - Hudson
         - Jeremiah
       - My trauma
-    - Part 3 (University PhD advisors, University psychiatric ward janitor, University PhD committee members, University CS department Chair, University Deans)
+    - Part 3 (University-hospital police officers, University psychiatric ward janitor, University PhD committee members, University CS department Chair, University Deans)
       - Charles Venuto
       - Henry Kautz
         - Fall, 2018 semester, and the Dead Marshes
