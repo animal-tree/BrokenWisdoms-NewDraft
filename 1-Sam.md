@@ -29,56 +29,51 @@ $$\mathcal{a \ Sam \ Lerman \ hobbit's \ tale} \ \text{𖥸}$$
     - Part 1 (University-provided health insurance (Aetna), University-hospital doctor, University-owned drug deliverer)
     - Part 2 (University-hospital psychiatrists, University outpatient doctor, University-hospital police officers)
       - House on May St.
-      - Psychosis, and Rochester General Hospital (RGH)
       - Psychiatry at the University of Rochester's Strong Hospital
       - Benzodiazepine mechanism of action
-      - Hospitalization
-        - Psychiatric unit
-        - Sarah
-        - Hudson
-        - Jeremiah
       - My trauma
     - Part 3 (University PhD advisors, University-hospital police officers, University-hospital nurses, University psychiatric ward janitor, University PhD committee members, University CS department Chair, University Deans)
       - Charles Venuto
+        - Uncanny beard premonition
       - Henry Kautz
         - Fall, 2018 semester, and the Dead Marshes
           - Buffy
-        - Crisis
-        - Psychosis, and Rochester General Hospital (RGH)
-          - Christmas, 2018
-          - Swallowing my tongue
-          - Kundalini risen/jammed, and what convinced me
+        - Psychosis crisis
+        - Rochester General Hospital (RGH)
+          - Christmas Eve/Day, 2018
+          - Catatonia, or "swallowing my tongue"
           - Discharge from RGH
         - The unsampled world at Clover St.
-        - University of Rochester Medicine
-          - Psychiatric unit
+        - University of Rochester's Strong Hospital
           - Sarah
-          - Flying colors
+          - Hudson
+          - Jeremiah
+        - Flying colors
         - Spring, 2019 semester
           - Area exam
           - The Martian
           - Giles
             - Giles
       - Chenliang Xu
-      - Comedic Aside: Sexier moments during Chenliang tenure:
-        - Tayler
-      - More Seriously
-        - Rituals, Religion, & Hell
-        - Hair regrowth
-        - I didn't mention fingernails (fingernails regrowth)
-        - How my grandma got dementia
-        - How my grandpa died
-        - When my grandma died
-          - Medical system diet arguments
-        - Ascent of a Jewish old grandpa
-        - Geriatric unit hospitalization
-        - Nurses
-        - Kids
-          - Mobi
-        - Future hair regrowths
-        - Intimacy healing
-        - The artificial and synthetic
-        - AI
+        - Comedic Aside: Sexier moments during Chenliang advising:
+          - Tayler
+        - More Seriously
+          - Rituals, Religion, & Hell
+          - Hair regrowth
+          - My grandma's fingernails
+          - How my grandma got dementia
+          - How my grandpa died
+          - When my grandma died
+            - Medical system diet arguments
+          - Ascent of a Jewish old grandpa
+          - Geriatric unit hospitalization
+          - Nurses
+          - Kids
+            - Mobi
+          - Future hair regrowths
+          - Intimacy healing
+          - The artificial and synthetic
+          - AI
       - Niaz Abdolrahim (okay, some more not-tragedy)
         - Uncle Slava
         - Christmas, 2018 crisis revisited, Volyoda, and hair regrowth
