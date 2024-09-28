@@ -978,7 +978,7 @@ Later, my best friend returned, literally. We were texting and he remarked, with
 
 #### Hair regrowth
 
-Full head hair regrowth in alopecia universalis, especially with comorbid eczema, is extremely medically rare/unprecedented. 
+Full head hair regrowth in alopecia universalis, especially with comorbid eczema, is extremely medically rare. 
 
 I was on a mostly-steak-only diet since at least as far back as April, 2020 (with wild caught salmon as well), at which time I was working on my Taylor-CAM paper as well.
 
