@@ -1190,7 +1190,7 @@ I didn’t eat steak, because of course they couldn’t afford it. Could you ima
 
 #### Nurses
 
-The nurses had threatened the court order. The nurses didn’t let me keep my clothes. The nurses had run over my toe. 
+Somebody had threatened a court order, perhaps a nurse or the psychiatrist. The nurses didn’t let me keep my clothes. The nurses had run over my toe. 
 
 #### Kids
 
