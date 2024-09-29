@@ -1190,7 +1190,7 @@ I didn’t eat steak, because of course they couldn’t afford it. Could you ima
 
 #### Nurses
 
-Somebody had threatened a court order, perhaps a nurse. The nurses didn’t let me keep my clothes, maybe-not-standardlt but due to Covid risk. The nurses had run over my toe. 
+Somebody had threatened a court order, perhaps a nurse. The nurses didn’t let me keep my clothes, maybe not-standardly-but-due-to-Covid-risk. The nurses had run over my toe. 
 
 #### Kids
 
